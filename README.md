@@ -7,7 +7,7 @@ This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowri
 
                           )       \   /      (
                          /|\      )\_/(     /|\
-*                       / | \    (/\|/\)   / | \                      *
+.                       / | \    (/\|/\)   / | \                      .
 |`.____________________/__|__o____\`|'/___o__|__\___________________.'|
 |                           '^`    \|/   '^`                          |
 |                                   V                                 |
@@ -17,7 +17,7 @@ This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowri
 |                                                                     |
 | ._________________________________________________________________. |
 |'               l    /\ /     \\            \ /\   l                `|
-*                l  /   V       ))            V   \ l                 *
+.                l  /   V       ))            V   \ l                 .
                  l/            //                  \I
                                V Alan Greep
                                        
