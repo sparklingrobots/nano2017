@@ -20,7 +20,10 @@ This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowri
 .                l  /   V       ))            V   \ l                 .
                  l/            //                  \I
                                V Alan Greep
-                                       
+       
+       
+(I tried to make that ascii dragon look better in markdown but you know what, it looks like junk. And that's something you'll have to get used to around here, so I'm leaving it.)
+
 
 Should you choose to read along, be forewarned: 
 * Characters will pop up, disappear, change gender, have new names, develop new motivations at the slightest breeze, become different people altogether, merge into one another, split into two or three, and more. 
