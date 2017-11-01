@@ -4,7 +4,7 @@ Hi. I will flesh this out as I go along but here is what you need to know to beg
 
 This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowrimo.org]. 
 
-
+```
                           )       \   /      (
                          /|\      )\_/(     /|\
 .                       / | \    (/\|/\)   / | \                      .
@@ -20,7 +20,7 @@ This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowri
 .                l  /   V       ))            V   \ l                 .
                  l/            //                  \I
                                V Alan Greep
-       
+```       
        
 (I tried to make that ascii dragon look better in markdown but you know what, it looks like junk. And that's something you'll have to get used to around here, so I'm leaving it.)
 
