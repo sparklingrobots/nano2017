@@ -46,6 +46,8 @@ If you eat artistic process for breakfast, lunch and dinner, then c'mon in and m
 3. I've done NaNo before; I'm curious to find out how publicly sharing my work will affect how I work. 
 4. Once I thought of sharing it publicly, the only reason I could think of for *not* sharing is that the writing will be an embarrassment. 
 
+I think the coolest part of the whole thing is getting to see how a novel gets written, in real time.
+
 ## Feedback & Contribution
 
 I'd love to hear your thoughts as I go along. If you like using github, then dig in.  If you don't, find me on Twitter https://www.twitter.com/sparklingrobots or Instagram https://www.instagram.com/sparklingrobots or just my very regular blog at http://www.tara-king.com. 
