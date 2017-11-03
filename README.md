@@ -1,6 +1,8 @@
 # nano2017
 
-Hi. I will flesh this out as I go along but here is what you need to know to begin with: 
+# Current word count: 1116 / 50,000. 
+
+Hi. Here is what you need to know to begin with: 
 
 This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowrimo.org]. 
 
@@ -40,3 +42,5 @@ If you eat artistic process for breakfast, lunch and dinner, then c'mon in and m
 4. Once I thought of sharing it publicly, the only reason I could think of for *not* sharing is that the writing will be an embarrassment. 
 
 I'd love to hear your thoughts as I go along. If you like using github, then dig in.  If you don't, find me on Twitter https://www.twitter.com/sparklingrobots or Instagram https://www.instagram.com/sparklingrobots or just my very regular blog at http://www.tara-king.com. 
+
+Contribution welcome in the form of edits on PRs and issues with your thoughts/feedback.
