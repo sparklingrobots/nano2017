@@ -23,11 +23,16 @@ This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowri
                  l/            //                  \I
                                V Alan Greep
 ```       
-       
-(I tried to make that ascii dragon look better in markdown but you know what, it looks like junk. And that's something you'll have to get used to around here, so I'm leaving it.)
 
 
-Should you choose to read along, be forewarned: 
+## How to read
+
+Go to: https://github.com/sparklingrobots/nano2017/tree/master/writing
+
+Each day's work is included there as a dated file (for now).  There's really no organizational structure as of yet so it's not like there's a Best Way To Read.  You can just read in order, or at random.  Any file that is titled something other than just a date is sort of meta-information and may shed some light on what's happening...or maybe it won't. 
+
+
+### Should you choose to read along, be forewarned: 
 * Characters will pop up, disappear, change gender, have new names, develop new motivations at the slightest breeze, become different people altogether, merge into one another, split into two or three, and more. 
 * There will be typos. Paragraphs will turn into long self-cheerleading diatribes.  
 * Scenes may disappear at any time. 
@@ -41,6 +46,10 @@ If you eat artistic process for breakfast, lunch and dinner, then c'mon in and m
 3. I've done NaNo before; I'm curious to find out how publicly sharing my work will affect how I work. 
 4. Once I thought of sharing it publicly, the only reason I could think of for *not* sharing is that the writing will be an embarrassment. 
 
+## Feedback & Contribution
+
 I'd love to hear your thoughts as I go along. If you like using github, then dig in.  If you don't, find me on Twitter https://www.twitter.com/sparklingrobots or Instagram https://www.instagram.com/sparklingrobots or just my very regular blog at http://www.tara-king.com. 
 
 Contribution welcome in the form of edits on PRs and issues with your thoughts/feedback.
+
+I am dwelling here in a weird margin: most coders don't care about how to write a novel, most writers don't care about using github.  So if you need help in either direction, reach out and I'll talk you through it. 
