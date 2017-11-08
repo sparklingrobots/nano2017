@@ -1,6 +1,6 @@
 # nano2017
   
-# Current word count: 8,625 / 50,000. 
+# Current word count: 8,830 / 50,000. 
 
 Hi. Here is what you need to know to begin with: 
 
