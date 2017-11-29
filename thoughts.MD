@@ -5,6 +5,7 @@ Thoughts on using Github & Software Development Skills/Methods for Writing
 * Projects on github for plot management
 * distraction free mode on sublime text
 * tools for compiling multiple docs into one doc
+* * pandoc -o compileddoc.docx -f markdown -t docx writing/*.md 
 
 ---
 
