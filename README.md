@@ -22,14 +22,14 @@ Last year I used github to store and share a really bad book I wrote during NaNo
 
 This year I'm using github to store the artifacts of the project as I edit it into something closer to a real book. This is my first NaNoEdMo (well, maybe not "national" since I'm doing it at the wrong time). 
 
-# what is NaNoEdMo?
+# What is NaNoEdMo?
 It's National Novel Editing Month [https://nanoedmo.com]
 
 To win, I must log 50 hours of verified editing in one month.
 
 Editing is defined as changing previously written material. Editing does not include writing a completely new novel. It does not include planning or researching. It does include anything from correcting the grammar and spelling to substantial rewriting of the novel. So here we are. 
 
-
+# Minutes logged so far: 11/3,000. (0.43%)
 # Current word count: 39,166 / 50,000. 
 # 2017 word count: 39,166 / 50,000. 
 
