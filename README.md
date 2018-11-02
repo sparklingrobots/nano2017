@@ -1,10 +1,4 @@
-# nano2017
-  
-# Current word count: 39,166 / 50,000. 
-
-Hi. Here is what you need to know to begin with: 
-
-This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowrimo.org]. 
+# nano2018
 
 ```
                           )       \   /      (
@@ -22,11 +16,31 @@ This repo is holding the "novel" I'm writing for NaNoWriMo 2017 [https://nanowri
 .                l  /   V       ))            V   \ l                 .
                  l/            //                  \I
                                V Alan Greep
-```       
+```  
 
+Last year I used github to store and share a really bad book I wrote during NaNoWriMo 2017 [https://nanowrimo.org].  
+
+This year I'm using github to store the artifacts of the project as I edit it into something closer to a real book. This is my first NaNoEdMo (well, maybe not "national" since I'm doing it at the wrong time). 
+
+# What is NaNoEdMo?
+It's National Novel Editing Month [https://nanoedmo.com]
+
+To win, I must log 50 hours of verified editing in one month.
+
+Editing is defined as changing previously written material. Editing does not include writing a completely new novel. It does not include planning or researching. It does include anything from correcting the grammar and spelling to substantial rewriting of the novel. So here we are. 
+
+# Minutes logged so far: 11/3,000. (0.43%)
+# Current word count: 39,166 / 50,000. 
+# 2017 word count: 39,166 / 50,000. 
 
 ## How to read
 
+### The new draft
+Go to: https://github.com/sparklingrobots/nano2017/tree/master/second_draft
+
+I'm going to be roughly dividing things into beginning/middle/end sections for now. But it's going to be a wild road! Let's figure out this "editing a novel" thing together!
+
+### The first draft
 Go to: https://github.com/sparklingrobots/nano2017/tree/master/writing
 
 Each day's work is included there as a dated file (for now).  There's really no organizational structure as of yet so it's not like there's a Best Way To Read.  You can just read in order, or at random.  Any file that is titled something other than just a date is sort of meta-information and may shed some light on what's happening...or maybe it won't. 
