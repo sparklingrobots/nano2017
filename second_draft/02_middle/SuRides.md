@@ -54,3 +54,9 @@ She backed into the alley and discovered the tall one behind her and felt a shar
 Su repeated everything they said though most of it got lost in the fear of the moment.  The idea of threatening somebody's life was so foreign but somehow her body knew what to do and kept her safe. 
 
 She sprinted back to the bike, her library errand entirely forgotten. 
+
+Su was weeping when she walked in the door. Lo stood up, startled--it wasn't common to see people cry outside of the Circles. Lo walked toward her and wrapped her arms around her, feeling Su shake and tremble as she wept.  They stood there together without speaking for another five minutes.  
+
+Finally Su felt whole enough to begin speaking and started telling Su everything: about the car, the threesome, about the knife. 
+
+She kept apologizing about the library but Lo wouldn't hear it.  They sat on the couch together, arms entangled, as Su recovered.  The sun outside was beginning to set in that golden yellow color.  It was time to go back to the drawing board.  

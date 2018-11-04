@@ -1,3 +1,5 @@
+SUMMARY: How the world changed, the slow collapse. 
+
 How much they felt like they got trapped in these shitty neighborhoods.  How they eventually realized that this is just their shitty life now.  How much it was like a hurricane but on a grand scale.   
 
 That's when the change happened.
@@ -37,3 +39,26 @@ The freeways were abandoned or converted as well.  They were so excruciating to 
 ---
 
 _The way the lessons from the Great Mourning are immortalized in songs now, so she knows them. And maybe she's just part of a cult? Rather than this being teh same as everything._
+
+
+The tipping point. The tipping point. The tipping point. 
+
+They had given up on the tipping point eventually.  The human race, it seemed, was a crescent moon, a rocking chair.  It was a swing and it desired equilibrium and while it could swing wildly it was unlikely to come unmoored off the center bar.  Back and forth, generation upon generation.  Not a cycle just back and forth. 
+
+Could it be a saw?  Could it cut through the basic substance of our lives? 
+
+Or did they just need to move the swings somewhere else.  Put in a new center bar. 
+
+So they started pushing on the foundations. 
+
+There was the Great Mourning and one phase was, of course, rage. 
+
+They had learned to channel their rage.  At first it was just emotional and then it actually became something greater. 
+
+They could focus it and make things happen.  There was a literal energy that came from them and took down their enemies.  
+
+A blast of rage could leave a mind washed clean and pale, a mouth drooling.  It was not permanent but it wasn't too different.  
+
+It was dangerous. 
+
+#todo: Can these be written like the book excerpts in Dune? 

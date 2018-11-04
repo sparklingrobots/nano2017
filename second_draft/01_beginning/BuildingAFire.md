@@ -1,3 +1,5 @@
+SUMMARY: The friends are in the woods building a fire together. There is no point to this scene yet. 
+
 They sat in the darkening forest together. The sounds of crickets and frogs surrounded them, even though it's cliche, and the breeze tussled the leaves.  Below them the dry pine needles made a kind of carpet under their feet (WOW CLICHES HAVE YOU EVER BEEN IN A REAL FOREST TARA). 
 
 Su was starting a fire, but it was getting dark. 

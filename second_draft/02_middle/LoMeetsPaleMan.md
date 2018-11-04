@@ -1,3 +1,5 @@
+SUMMARY: Lo encounters the Pale Man. 
+
 She couldn't get him out of her head. 
 
 He was unremarkable, like a bowl of cold oatmeal congealed in a paper bowl.  From the ill-fitting pants to the stylish glasses he was not note-worthy.  His pale skin and hair, his baby face, his adult body--none of it noteworthy but yet it carried the power and privilege of his race and his gender and his education in every step. 

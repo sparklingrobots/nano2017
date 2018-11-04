@@ -1,3 +1,5 @@
+SUMMARY: Fi receives a vision at the tree. 
+
 THINGS THAT GOT LOST: 
 
 _The history of the tree, the way the strangeness of the tree in its context obscured from her that true strangeness about it.  Something is hiding in this tree and she needs to know what.  (Alternatively she gets offed and somebody else figures it all out.)_

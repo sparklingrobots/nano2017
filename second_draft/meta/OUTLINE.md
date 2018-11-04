@@ -4,18 +4,18 @@
 
 Centuries ago, a man was sent on a mission to the New World--to embed a sonic weapon in a sacred place that would accomplish WHAT EXACTLY. 
 
-Modern times: Our protagonist, Lo, is lonely and unhappy with SOMETHING--she needs something. A red-headed person appears on her doorstep with a mission from the Delvers (an organization that Lo wanted to join but was rejected from as a baby)--there is an evil growing in the world and the Delvers believe Lo can help.  The red-head had a vision of seven robed figures around a tree, singing as the world burned. 
+Modern times: 
+* Our protagonist, Lo, is lonely and unhappy with SOMETHING--she needs something. 
+* A red-headed person appears on her doorstep with a mission from the Delvers (an organization that Lo wanted to join but was rejected from as a baby)--there is an evil growing in the world and the Delvers believe Lo can help.  The red-head had a vision of seven robed figures around a tree, singing as the world burned. 
+* Fi guides Lo to the Delver HQ, where she is given the mission and begins to see something is awry with the delvers. 
+* Lo, with the help of Su and Fi, begins researching the mission from centuries ago to try to uncover the cure. 
+* The bad force begins awakening in certain people, causing them to become selfish and stingy TO WHAT END? One of those people is Lo's lover, who eventually turns on her. WHAT IS THE MECHANISM FOR CONVERSION? DOES LO'S LOVER TURN EARLY OR IS IT A LATE BETRAYAL?
+* Lo eventually breaks down and tells Su/Sun everything there is to know. Su gets involved and goes to the next town over to see if things are better/worse there (moto scene)
+* Lo tracks them out to an abandoned military installation, where their device is being built to unleash the badness. WHAT IS THE BADNESS. Lo realizes that in the past everyone had been creative and had been able to share their ideas with anyone.  She realizes the histories are wrong about that and the Bad Guys have also figured out radio broadcasting again. 
+* Somehow Lo, Fi & five others make it to the sacred tree to complete the song.  I think a bad guy interrupts it and eventually birds turn to Lo and bow to her.  She has SOMEHOW destroyed both the bad guys and the Delvers.  A new world dawns. 
 
-Fi guides Lo to the Delver HQ, where she is given the mission and begins to see something is awry with the delvers. 
-Lo, with the help of Su and Fi, begins researching the mission from centuries ago to try to uncover the cure. 
-
-The bad force begins awakening in certain people, causing them to become selfish and stingy TO WHAT END? One of those people is Lo's lover, who eventually turns on her. WHAT IS THE MECHANISM FOR CONVERSION? DOES LO'S LOVER TURN EARLY OR IS IT A LATE BETRAYAL?
-
-Lo tracks them out to an abandoned military installation, where their device is being built to unleash the badness. WHAT IS THE BADNESS. Lo realizes that in the past everyone had been creative and had been able to share their ideas with anyone.  She realizes the histories are wrong about that and the Bad Guys have also figured out radio broadcasting again. 
 
 Okay, so the Delvers control everyone with singing--a sort of sonic tuning that keeps them calm and unified. They have destroyed mass broadcasting and national media The bad guys are uncovering ancient radio towers 
-
-Somehow Lo, Fi & five others make it to the sacred tree to complete the song.  I think a bad guy interrupts it and eventually birds turn to Lo and bow to her.  She has SOMEHOW destroyed both the bad guys and the Delvers.  A new world dawns. 
 
 Delvers = collective, like ants or bees
 Bad Guys = loners, like cats
@@ -57,7 +57,6 @@ An amateur musicologist joins forces with a plant witch to stop a threat no one 
 #todo: actually understand the nature of the threat
 
 #todo: Don't freak out about how much there is todo. 
-
 
 
 

@@ -1,3 +1,5 @@
+SUMMARY: History of the Great Mourning. 
+
 The Great Mourning started with Kevin Spacey, though it could have started anywhere. 
 
 The history books say it could have started with the election of Donald Trump, with the riot at Charlottesville, with Citizens United.   There had been dozens of books on when the start might have been.  What the cause.  The books were congenial, helpful to each other when able.  It could have started with the death of Trayvon Martin or any of the dozens of other Black deaths.  
