@@ -1,0 +1,1 @@
+#todo: Write about how the Delvers don't like Fi when she fucks up and they also don't like Fi when she's neutral and they also don't like Fi when she's doing the right thing. How is it that the Delvers suffer for mistreating and underestimating Fi? 

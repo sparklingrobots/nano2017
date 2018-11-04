@@ -1,0 +1,5 @@
+*Manifesto of the Delvers* (possibly a speech that is given to the classes at the Well, or perhaps in the book to Lo) (maybe Fi shares it with Lo against orders.  It's the Oath of the Nightswatch, but secretive. So Fi can recite it.): 
+
+Long ago the world fell into the Great Mourning. And as we mourned together we learned that humans were stronger together, and that we needed to learn more about how to achieve peace, to actively work towards peace, which meant that we needed to change our nature. 
+
+We learned that behavior can guide emotions, and we developed a guardian class to help us learn and perpetuate the behaviors that helped us be our best selves.  We are the Delvers.  We read the signs, we moderate, we facilitate, we sing. We bring humanity together to be its best self, so that we might live until the heat death of the sun.  We sacrifice our own lives so that others may live better.  We are the openers of the heart, the soothers of the soul, the drainers of the poison. 

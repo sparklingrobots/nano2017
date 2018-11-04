@@ -1,0 +1,11 @@
+Summary: Fi makes a decision to betray the Delvers by revealing their technology to Lo.
+
+Fi seethed as they walked down the hall to fetch the files.  It wasn't fair that they were alsways treating her like a servant. It wasn't fair that they had been here so long and never been welcomed into the council.
+
+They walked down the hall without thinking, heading straight to the Archives.  Normally if a Delver met another Delver, they would either seal off their emotions or the two Delvers would pause to help the angry one reach a type of equilibrium--but since the incident at the tree, they hadn't been able to do either with her so this Delver at the archives simply avoided eye contact and disappeared into the stacks. 
+
+Fi used to love the archives.  The wood paneling on the wall was warm, and it was so quiet there.  They used to go look at all the botany books the Delvers kept on hand--it wasn't a college library or anything but they needed books to teach the children until they were ready to move into the world.  And Fi learned the names of all the plants around her, and then they learned the names of all the plants they had in the books.  They read books about the historical uses of plants, about ethnobotany, about food and medicine uses.  It was a good place but once she was old enough they asked her not to come to the Archives for pleasure anymore. 
+
+Just another example of how they didn't really think she had much to offer.  But this time was different. Fi had always known they were special and had mostly beeen content to let the other Delvers ignore her--the plants were there for her.  They didn't notice how verdant the gardens Fi tended were. Always it was a good growing season and Un never noticed that Fi was the one constant--even in years of bad weather, floods or droughts, she could grow a decent crop.  But because she wasn't as good with people as with plants they found her just barely tolerable. 
+
+The Archivist returned and handed the file over to Fi without looking at her.  She took the file, feeling her resolve stiffen as she walked back down the hall. She would solve this problem and they'd have to see her value.  She would do it or she would never come back here. 
