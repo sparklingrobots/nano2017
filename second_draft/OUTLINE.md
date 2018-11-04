@@ -1,6 +1,27 @@
-OUTLINE 
+# OUTLINE 
 
-ONE SENTENCE VERSION:
+## Tara's Kinda Rough Plot Summary to Just Figure Out If I Know What Happens In This Book Chronologically
+
+Centuries ago, a man was sent on a mission to the New World--to embed a sonic weapon in a sacred place that would accomplish WHAT EXACTLY. 
+
+Modern times: Our protagonist, Lo, is lonely and unhappy with SOMETHING--she needs something. A red-headed person appears on her doorstep with a mission from the Delvers (an organization that Lo wanted to join but was rejected from as a baby)--there is an evil growing in the world and the Delvers believe Lo can help.  The red-head had a vision of seven robed figures around a tree, singing as the world burned. 
+
+Lo, with the help of Su and Fi, begins researching the mission from centuries ago to try to uncover the cure. 
+
+The bad force begins awakening in certain people, causing them to become selfish and stingy TO WHAT END? One of those people is Lo's lover, who eventually turns on her. 
+
+Lo tracks them out to an abandoned military installation, where their device is being built to unleash the badness. WHAT IS THE BADNESS. 
+
+Okay, so the Delvers control everyone with singing--a sort of sonic tuning that keeps them calm and unified. They have destroyed mass broadcasting and national media The bad guys are uncovering ancient radio towers 
+
+Somehow Lo, Fi & five others make it to the sacred tree to complete the song.  I think a bad guy interrupts it and eventually birds turn to Lo and bow to her.  She has SOMEHOW destroyed both the bad guys and the Delvers.  A new world dawns. 
+
+Delvers = collective, like ants or bees
+Bad Guys = loners, like cats
+Lo = the blend of both, individuality within the collective
+
+## ONE SENTENCE VERSION:
+
 #todo: Take an hour and write a one-sentence summary of your novel. Something like this: “A rogue physicist travels back in time to kill the apostle Paul.” (This is the summary for my first novel, Transgression.) The sentence will serve you forever as a ten-second selling tool. This is the big picture, the analog of that big starting triangle in the snowflake picture. (https://www.advancedfictionwriting.com/articles/snowflake-method/)
 
 In a world that has healed from the modern apocalypse, seeds from the past begin to threaten an overly stable society. 
