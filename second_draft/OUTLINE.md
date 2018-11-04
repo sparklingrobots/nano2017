@@ -62,7 +62,7 @@ An amateur musicologist joins forces with a plant witch to stop a threat no one 
 
 
 
-
+PRELUDE: The Pale Man is infected with the badness. [Still need to understand what the badness is...]
 
 # Fi discovers the tree.  
 

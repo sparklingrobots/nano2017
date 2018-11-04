@@ -1,3 +1,5 @@
+SUMMARY: Lo and Su play a game; Lo passes out from some effect of Bad Guys or Delvers.
+
 She looked at the dice on the table and looked back at the map.  It all came down to this moment, or it would if things went well. If they went poorly, they had a few more hours of gaming ahead of them.  
 
 Her back ached from standing and sitting.  She carried stress in the back of her pelvis and would need a good long stretch on the floor after this, but it was worth it.  They'd been going at it since 10 am and if she didn't win now, it was likely to go for hours and she'd lose.
@@ -79,20 +81,3 @@ The last thing she said was: "This is harder than I expected it to be."
 
 ---
 
-When she woke up she was on the couch.  Su and Nw were there, with Io hovering behind at a distance.  Su smiled when her eyes opened.  
-
-"I'm glad to see you, honeybee."
-
-Lo smiled.  She felt exhausted, like she had never felt before.  She couldn't remember what had happened. 
-
-Su helped her to a sitting position and looked into her eyes.  Lo looked down. 
-
-With a jolt she pulled away from Su instinctually, remembering the dream she'd had.  
-
-She could see she was scaring Su and realized she had likely called the other two to join them.  She knew she needed to tell them but could feel the same fear from before welling up inside her. 
-
-It was Io who broke the silence: "Lo, what's going on?" Their voice was, as always, soothing to Lo--a sweet combination of concern and confidence, an intoxicating presence. 
-
-"Get me a pencil and some paper, please. And my backpack from the other room." 
-
-Nw, ever the helpful one, popped up immediately for all three things.  The beauty of living together meant they all knew, more or less, where everything might be. 

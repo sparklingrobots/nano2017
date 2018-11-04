@@ -12,3 +12,11 @@
 * Find more strategies for revision and improvement. 
 * Go blind from reading your book too much. 
 * Get an editor to read it.
+
+
+BOOKS TO READ: 
+* Revising Prose, Richard Lanham
+* Nobody Wants to Read Your Shit
+
+Articles: 
+* Snowflake method: https://www.advancedfictionwriting.com/articles/snowflake-method/ 

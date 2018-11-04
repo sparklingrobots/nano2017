@@ -1,3 +1,5 @@
+SUMMARY: Flashback to when the mission was given and carried out. 
+
 # SCENE: Write about the incident that caused the tree to be what it is. 
 
 He had been travelling with the padres since they left the Old World.  He was travelling as a humble servant and secretary, a man whose name would never be entered into any permanent record though his was the hand that scrawled it.
@@ -107,41 +109,43 @@ She sat in the shadow of the tree, unmoving, watching his figure as he approache
 
 He acted like he could see, walking quickly as a man unafraid of stepping on a cactus or rock, but she could tell that he was also unafraid of a woman hiding in wait for him. 
 
-CONTINUES IN 2017.11.15.MD
+He had a small bag with him, tied to his waistband.  She had to give him credit for walking quietly.
 
+Okay, maybe she doesn't watch him approach.  Sorry, hapless reader. 
 
-# SCENE: Write about when the tree released itself into the Bad Guys. 
+He swung wide around the tree and approached from the side away from the mission, trying to keep the tree between them so he wouldn't be spotted.  He walked with bent knees quickly and silently up to the tree, then crouched in the shadow side, moonlight falling on both sides of him.  He pulled the tool they gave him out of its bag--a device to bore into the heart of the tree.  He felt along the bark for a good place to begin and found a relatively smooth section of bark.  He pressed the borer up against the tree and started turning the crank.  He was grateful that it didn't squeak but it wasn't exactly silent as it drilled a hole an inch across and ten inches deep in this young tree. 
 
-Many many miles away a pale blond man sat at a table, reading a book on the thick slab of wood that formed the table's surface.  It was late, not sure what time.  He had a cup of coffee near him.  He had a notebook open next to the book, taking notes on what he was reading.  It was a book he found in the back of the library and it seemed no one had read it in a very long time judging from the dust and the nearly immaculate but very brittle binding. 
+He worked quickly.  A noise came from above, like a wounded man, and he dropped the tool to the dirt.  He stayed crouched, putting his hands on the smooth bark and craned up to see if someone was in the tree.  It was dark.  He squinted against the bright moon but couldn't see anything--no movement, no strange shapes.  He could hear only the sighing of the branches, and smell the fresh sawdust from the tree and the fresh vegetation around the tree. 
 
-It was a day like any Tuesday. He lived alone; he ate what he wanted when he wanted to.  He didn't have a lot of friends and his family was long gone.  He read most nights until 2 a.m. or so, feeling the coffee fill his stomach and warm him up.  
+He waited a few moments for his hands to steady.  He picked up the tool from the dust and finished boring the hole.  Then, from the back he kept around his neck, he pulled the vial.  He hadn't looked at it since they had given it to him, though he frequently felt the outline of it in the bag.  They hadn't told him what would happen if it broke. He had not asked. 
 
-There was a flash in the distance bright enough to cast a shadow from his coffee cup for the two seconds it was lit--he looked up and could see a very large beacon of light off in the distance.  He could see it out the window of his third-floor apartment.  He stood up and walked over to the balcony, wondering if he'd see it again. 
+The vial looked fine. Unable to resist his curiosity, he held it out into the moonlight to see it better. The plain gray dust inside went from dull to iridescent, and as before it seemed as if there was almost a pattern in the dust.  It almost looked like words but he couldn't read this language. He felt his entire body go cold and snatched the vial back into the shadows.  The letters disappeared. 
 
-For the better part of ten minutes he waited but nothing more happened.  The building he lived in was largely abandoned--he liked the quiet but now he wished he had a neighbor to confirm with. 
+He turned back to the tree and carefully placed the vial in the hole he had made for it.   He pulled the other vial from the bag at his waist--a tree protectant.  He stuck his finger in the opening and the thick green liquid coated his finger.  It smelled like something he'd never smelt before, camphorous and strong.  He rubbed the liquid in the hole as far as he could, especially around the opening.  Then he cut the bark off the wood he had bored out, and settled it in the tree, a little camouflage.  
 
-He sat back down and tried to get back to reading.  He sipped his coffee and started the page again.  
-
-Maybe it was a strange form of lighting.  Or maybe someone had lit a bonfire?  He kept getting distracted by memories of the shadow of his coffee cup.  
-
-It hadn't looked like what the shadow of a coffee cup should look like.  It had looked like a small creature was crawling on his desk--almost like it was crawling into his cup of coffee.
-
-He scoffed to himself and went back to the book.  But he found himself reading the same paragraph three times. He couldn't keep his eyes off the coffee cup.  He picked it up and swished the cooling liquid in the cup. This was nonsense. He took another sip to prove to himself everything was fine and indeed, it was just a cup of lukewarm coffee. 
-
-He decided he needed to get some sleep.  Maybe he should call somebody up in the morning--he'd been spending too much time alone.  His cat meowed at him from the doorframe and he took it as a sign. 
-
-He did not notice the shape the coffee made as he poured it out into the kitchen sink--it looked uncannily like an old willow tree, frozen in that shape for a moment before the black liquid seeped down the drain. 
+He was excited now.  He'd finally done it.  That future of whores and ladies, gold and blood was upon him, or would be.  He could stop worrying about this life, this worthless fake mission--
 
 ---
 
-His dreams that night were awful but not scary, somehow.  Everyone around him was afraid, it seemed, but they seemed to be afraid of him.  It was absurd.  They acted nice to his face but he could see the way they talked about him when they thought he wasn't looking.  He felt both immeasurably powerful and utterly powerless, a lone ship on a large sea, floating above it all but at the mercy of the elements, the fish, the loneliness. 
+She came up fast behind him and pinned him to the tree.  She had been on patrol and he managed to come up when she was gone.  Honestly luck is better than skill--there was no way he'd managed this on purpose.   
 
-He awoke and lay in bed, looking at the dark ceiling.  The crickets had gone to sleep; everything was silent. He felt a fever coming on. That had to be what it was. 
 
----
+"What are you doing, senor?"
 
-He woke again, shivering and yet overheated. The sun was high in the sky.  His cat was hiding in the corner, utterly unwilling to come back by him. 
+He smiled, despite the knife at his neck.  
 
----
+She eased away from him, keeping her knife at the ready.  They had never killed at the spring and she'd like to keep it that way. 
 
-He awoke again. He didn't know what day it was but he was a new man.  He was a man.  He was awake and ready to take everything that belonged to him. He could tell he had changed. He had finally found the thing he'd been looking for; or perhaps it had finally found him. 
+"What are you doing, senor?" Her deference from earlier was gone completely and now he could see it was an act.  This woman had killed before and would again.  Even though he knew he'd get his reward, one way or another, she did seem to be something of an obstacle. 
+
+She scanned the tree and while her eyes were off him, he gripped the borer in his hand, ready to use it against her.  But the knife at his throat kept him pinned. 
+
+"Nada, senora. No hago nada. Solamente estoy [praying] en la sombra del arbol sagrado." 
+
+"El arbol no es sagrado. Solamente el agua es."
+
+His eyes flickered to the tree, afraid he'd done the wrong thing and she took that opportunity to pull him off his feet away from the tree.  But he was not new at this and as she pulled him her guard was done, and he slammed the cutting edge of the borer into her neck.  Blood fountained from the wound and he took pleasure in her eyes widening for him until her knife slid up and under his ribs. 
+
+She hadn't really meant to do that.  She didn't like killing but a deep part of her brain had taken over with a desire to live and to retaliate.  Her hand was firmly pressing into him still but as he staggered and released the grip on the borer she stepped back and felt the tool stuck in her neck.  She knew this was the end. She wanted to drag him and his foul blood away from the water. She reached to grab his boot and tried to pull, but felt her grasp fail.  She fell to her knees and crawled to the edge of the water, the water she had given her life to protect.  She reached a hand into the blue pool, lit so well by the moon she could see the small fish sleeping there. She reached out and saw the blood on her hand washed away by the water.  She had not failed. 
+
+The next watcher found the bodies as the sun was coming up.  She ran to tell the others.  They would need to fix this tonight. 
