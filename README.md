@@ -29,7 +29,7 @@ To win, I must log 50 hours of verified editing in one month.
 
 Editing is defined as changing previously written material. Editing does not include writing a completely new novel. It does not include planning or researching. It does include anything from correcting the grammar and spelling to substantial rewriting of the novel. So here we are. 
 
-# Hours logged so far: 2.16/50. (~4%)
+# Hours logged so far: 4.78/50. (~10%)
 
 # 2017 word count: 39,166 / 50,000. 
 
