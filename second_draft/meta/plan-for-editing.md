@@ -20,3 +20,6 @@ BOOKS TO READ:
 
 Articles: 
 * Snowflake method: https://www.advancedfictionwriting.com/articles/snowflake-method/ 
+
+Word Count tool: 
+https://superuser.com/questions/353078/how-do-i-count-the-total-number-of-words-of-all-files-in-a-directory-and-its-su

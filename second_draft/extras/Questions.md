@@ -46,6 +46,8 @@ UPDATE: the crowbar is not this.  She does feel those things but mostly the main
 
 ## WHAT IS THE JEOPARDY
 
+The Jeopardy is that the Delvers are flawed but better than the alternatives that are arising in other places. 
+
 The jeopardy is her two conflicting needs.  She will be forced to choose.  Perhaps in her choosing she can outwit the villain and get them both--but in her heart she will know that she has to make a choice.  
 
 (Flora 717's two needs were to survive, which entailed fitting in, and to be the unique and magical bee she knew she was.  She didn't get them--but she did get to survive in that weird parenting way.  And she definitely was the unique and magical bee.  In some ways her needs (though she didn't know them) (how interesting is that!?!?) were to save the hive and to destroy the hive.  And she saved the hive by destroying it.)
