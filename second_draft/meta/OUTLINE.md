@@ -6,6 +6,7 @@ Centuries ago, a man was sent on a mission to the New World--to embed a sonic we
 
 Modern times: 
 * Our protagonist, Lo, is lonely and unhappy with SOMETHING--she needs something. 
+* There is some kind of benevolent disturbance -- a holiday, a new class of Delvers? Something that shakes up the normal things around town so the weird shit isn't noticed as much.
 * A red-headed person appears on her doorstep with a mission from the Delvers (an organization that Lo wanted to join but was rejected from as a baby)--there is an evil growing in the world and the Delvers believe Lo can help.  The red-head had a vision of seven robed figures around a tree, singing as the world burned. 
 * Fi guides Lo to the Delver HQ, where she is given the mission and begins to see something is awry with the delvers. 
 * Lo, with the help of Su and Fi, begins researching the mission from centuries ago to try to uncover the cure. 
@@ -23,8 +24,12 @@ Okay, so the Delvers control everyone with singing--a sort of sonic tuning that 
 
 Delvers = collective, like ants or bees. Control people with sound & hormones, very difficult to infiltrate, militaristic stuff is deeply buried, haven't had to defend themselves much. 
 Bad Guys = loners, like cats. Controlling/building a radio broadcast network to ruin the Delvers and take them over (better land, more water)
-Lo = the blend of both, individuality within the collective
+Lo = the blend of both, individuality within the collective. Lo is creativity.  Lo unleashes song writing on everyone. That's how song birds are involved. 
 How do the Delvers get destroyed at the end? Their tactics are shown to be vulnerable to corruption, each person must guard their own reactions.
+
+Things I love about the original version: 
+Humans are very responsible with their emotions, and have huge toolboxes for letting go of bad things and managing their emotional responses. 
+It's a society that values close relationships, that doens't define gender, that has a much lower human population than our current one. 
 
 ## ONE SENTENCE VERSION:
 
