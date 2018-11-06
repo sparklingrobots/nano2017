@@ -15,14 +15,16 @@ Modern times:
 * Lo has a mysterious encounter with a lot of birds
 * Lo discovers one of the Delvers is leading the betrayal.
 * Lo tracks them out to an abandoned military installation, where their device is being built to unleash the badness. WHAT IS THE BADNESS. Lo realizes that in the past everyone had been creative and had been able to share their ideas with anyone.  She realizes the histories are wrong about that and the Bad Guys have also figured out radio broadcasting again. 
+* The tree has been destroyed! How can they complete the sacred ritual? (I'm sta)
 * Somehow Lo, Fi & five others make it to the sacred tree to complete the song.  I think a bad guy interrupts it and eventually birds turn to Lo and bow to her.  She has SOMEHOW destroyed both the bad guys and the Delvers.  A new world dawns. 
 
 
 Okay, so the Delvers control everyone with singing--a sort of sonic tuning that keeps them calm and unified. They have destroyed mass broadcasting and national media The bad guys are uncovering ancient radio towers 
 
-Delvers = collective, like ants or bees
-Bad Guys = loners, like cats
+Delvers = collective, like ants or bees. Control people with sound & hormones, very difficult to infiltrate, militaristic stuff is deeply buried, haven't had to defend themselves much. 
+Bad Guys = loners, like cats. Controlling/building a radio broadcast network to ruin the Delvers and take them over (better land, more water)
 Lo = the blend of both, individuality within the collective
+How do the Delvers get destroyed at the end? Their tactics are shown to be vulnerable to corruption, each person must guard their own reactions.
 
 ## ONE SENTENCE VERSION:
 
