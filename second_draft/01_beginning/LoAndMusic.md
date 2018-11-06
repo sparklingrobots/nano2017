@@ -1,5 +1,6 @@
-#themes: Music
+Summary: Lo's Musical Life
 
+ 
 Her music studies were going well, she thought to herself.  Not everyone would have been able to learn all these songs the way she had, mostly out of books and going to weird events where other music nerds would gather. 
 
 She toyed with her dinner, a particular song stuck in her head: 

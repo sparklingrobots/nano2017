@@ -6,6 +6,15 @@ Lo is a nobody, an unhappy loner on the edges of her friend group. She's an amat
 
 She's very dedicated to the communal life but has an itch she can't quite scratch. She knows she could be greater but struggles to understand the concept of a person being greater. 
 
+
+Lo is the main character.  The world is a different place where we work together, where we've developed all kinds of ways of making things work with our bodies, with the earth.  Like in 17776, many problems have been solved. 
+
+So the main problem is, perhaps, simply an emotional one.  In 17776, the main issue is that the old probe can't catch up to the new times.  The new painless times. The struggle for meaning in the face of absolutely no threat.
+
+She is the guardian of a secret and the organizer of a team who needs to either find the secret or make it all work together.  
+
+
+
 ## WHAT ARE THE TWO CONFLICTING NEEDS OF THE PROTAGONIST
 
 She desperately needs to protect the Delvers, but in following the mission they gave her, she discovers that her actions will unravel the Delvers.  
@@ -156,6 +165,19 @@ Be the tree?
  
 Be inside the tree? 
 
+
+The tree had a spore in it that came loose when Fi psychically jostled it.  It infected mostly Delvers, who were vulnerable to the signals.  Those Delvers started to get stuck, resentful, isolated, and started turning people to their side. 
+
+The song that Fi saw is indeed a containment spell that has been perverted/forgotten & rewritten by the Delvers in the area, but they don't remember any more where it came from.  So they sing it to the Well instead of the tree. 
+
+The birds in the area know something of the tree.  They know that of the two lines of humans (Delvers & non) they will merge into one better species.  They know that Lo is the one to do it becuase they recognize her from her ancestor/reincarnated self, which is why they declare her King of All Birds. 
+
+The Delvers want to broadcast their fucked up and vaguely fascist views longer distance. So they resurrect an old radio station and start pirate broadcasting.  This is where Lo breaks in at the end of the book and has to disable the device (in retrospect everything about that scene should be Su.  Su is more mechanical and will want to save Io but will not feel SO fucked up by it.)
+
+In the mean time Lo has assembled her group to sing to the tree.  The singing will actually trigger a kind of collapse of the space/time continuum, so all the Protectors will be singing at the same time (why does this one trigger and no other time does?).  And when they do that, the tree will push out the antidote to the Bad Guys.  
+
+But they don't solve it in time to save the Delvers.  And the Bad Guys have proven that this kind of secretive culture & structure is too dangerous.  So Lo knows her next phase in life is teaching the Delver skills to everyoe.  
+
 ## WHAT'S THE CLIMAX
 
 How do we have a gardening related climax? It sounds so boring and slow. Why did I do this to myself. 
@@ -175,6 +197,53 @@ Finally Lo is able to reach the tree, has the robes, has the folks and together 
 They return to the present moment, much older and more tired.  
 
 Lo has lost her bestie. She writes a new song of mourning for the loss, but a new song--with a solo. With some love song references. 
+
+
+I want to write at length about what the climax is here. 
+
+Lo has found some information that not everyone can access.  This information is very important and very dangerous.  I'm not sure yet if it's dangerous to Lo and her crew or if it's dangerous to an outside entity.  
+
+Let's brainstorm about outside entities that could be harmful but are not human: 
+
+No, wrong question. 
+
+We already have these on-theme monsters: 
+
+Monsters in gardening include: 
+* Animals that eat everything
+* Poisons
+* Drought
+* Mold
+* Bugs 
+* Floods/natural disasters
+* People stealing or disrupting your harvest
+* Invasive species 
+* Catastrophic earth events (meteors, global warming)
+
+Monsters in history include: 
+* Mold
+* Decay
+* Loss
+* Disruptive events that destroy records
+* Disinterest
+* Fallibility of memory
+* War 
+* Illiteracy
+
+A list of ideas: 
+* The Great Mourning caused us to revert to illiteracy from a belief that spoken word cultures were more sustainable
+* The patriarchy is hidden in the tree. (lulz at that sentence but let's roll with it). Some kind of pattern or habit or something is exposed in the vision of the tree and it unleashes some of our bad patterns back on us (thinking here of the "sustainability of patriarchy" from Cynthia Enloe)
+* People are just different from each other and this utopia is bound to have dissenters. I just don't want to present a visionary future that is the kind of utopia you can't help but destroy (which is what i'm experiencing right now).  
+* * How do they do it on Star Trek? That's a visionary society.  Everybody in the Federation is committed wholeheartedly to the ideals of the Federation--but the ideals are difficult to uphold and there are external enemies who don't care at all/maybe even hate the Federation. 
+
+Okay so maybe the idea is that humanity has come together.  
+
+Then a threat from somewhere else appears--could be an alien, could be a weird apparition from the past (I THINK WE KNOW WHICH ONE IS A WINNER) but it does NOT like what is going on and wants to push us into a different habit.  Some people fall prey to it, others resist strongly. 
+
+OKAY I AM LIKING THIS. 
+
+
+
 
 ## WHAT'S THE CONCEPT
 

@@ -1,3 +1,5 @@
+SUMMARY: Hair cut.
+
 They decided it was time. 
 
 They took a knife out of their pocket and started sharpening it.  Okay, Tara, but really: How primitive is this situation?  
@@ -11,16 +13,3 @@ They left the top part a bit longer, but the sides were close cut.  (Do they hav
 She used her knife to crop the sides. It was not easy. In fact, it looked like shit, choppy and uneven.  The top of the hair was floppy. 
 
 She looked like a punk rocker. Maybe this would work.  
-
----
-
-	
-
----
-
-Bark, land, admission
-
-To be frank right now we are just in the world, exploring. Looking for a story. Looking for people. It's not my fault that in most worlds most of the time it's a lot of boring people doing very standard things.
-
-(Is it?)
-

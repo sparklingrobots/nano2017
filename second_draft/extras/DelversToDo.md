@@ -1,16 +1,3 @@
-TODO: Write about the social technology that holds this all together. It's obviously tied up in the singing, meditating, and maybe something else. There's a strain of some magic, maybe, with the delvers.  
-
-The Great Mourning finally took both sides of the political divide.  
-
-It took awile for the young people to be tired enough. Instead of the ongoing refreshing energy from the young people, they were tired. Everyone was tired. Nobody was encouraging anybody to do anything.  They stopped reading the news. 
-
-This is not working for me today. 
-
----
-
-
----
-
 Here are some more thoughts about the Delvers: 
 
 They're essentially a network of cells of Delvers who have been trained centrally to uphold certain types of values and behaviors--they're a benevolent organization that is perhaps a bit too strict about what they disallow, but they're very contextually sensitive and local.  There is not a lot of national/international media except for what is put out by/approved by the Delvers. But they are also vulnerable as the local Delvers are just people and can't necessarily do it all. It's not a particularly authoritarian organization--it's very networky and distributed--but the standards and values are centralized. 
