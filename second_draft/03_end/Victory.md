@@ -1,9 +1,4 @@
-
-
----
-
-[This scene is something to do with how Lo breaks the Delvers]
-
+SUMMARY: After the tree scene, victory.
 
 She looked up from the mud under her knees.  
 
@@ -30,11 +25,3 @@ She turned to find Un.  They were curled up sleeping beneath a tree.  She admire
 The sun shone brightly through the bare branches of the trees.  The wind was sharp and the world smelled of mud and green life.  They had fences to cut down, people to teach.  They needed to get started right away. 
 
 The bubbles continued to break the surface of the springs.  She thought of all who had passed by this exact spot over the centuries--hunter gatherers, Spanish vaqueros, American families, curious teenagers, and now this: the dark resolution to a problem centuries in the making.  She cupped her hands and drank deeply of the springs.  She would need its strength for the time to come: The Time of All Songs.  She knew in her bones everything would be different. 
-
-
----
-
-
-
----
-
