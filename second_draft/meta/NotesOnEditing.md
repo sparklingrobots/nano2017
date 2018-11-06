@@ -26,3 +26,7 @@ Got a later start than I wanted this morning, but really enjoying the process so
 Trying to just be patient and to keep reading--I may have solved some of these issues already (like what's the actual bad stuff??) and am overdoing the work. So trying to at least read each scene as I cut it up and to summarize it. Then adding the summary to a card on the GitHub project to try to get that all out in the open. 
 I think this may be a five-act structure so I am gonna need some learning on how to do that. Act 1: Meet characters. Act 2: Meet Delvers. Act 3: Lo strugles to sort out secret. Act 4: Lo finds the Delvers have fucked with her, Act 5: Lo blows it all to hell. 
 Realizing that in some ways obsessively organizing is helping me get there, helping me cut this into pieces small enough to handle. So I'm going through and renaming scenes semantically/descriptively, and making sure all files are CamelCase. Starting to see some scenes are already in the wrong spots. Also updating GitHub cards with both the summary and the file name.
+
+2018.11.05
+I'm proud of myself for stopping Norsemen even though NO ONE ELSE wanted to. 
+I'm starting to feel like maybe the tree is a red herring or ...I don't know. It might need to be something else.  The story right now has a lot more to do with human foibles and I'm not sure at all what will make the tree into something reasonable/logical. 

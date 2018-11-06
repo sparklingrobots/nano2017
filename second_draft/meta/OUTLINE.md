@@ -11,6 +11,9 @@ Modern times:
 * Lo, with the help of Su and Fi, begins researching the mission from centuries ago to try to uncover the cure. 
 * The bad force begins awakening in certain people, causing them to become selfish and stingy TO WHAT END? One of those people is Lo's lover, who eventually turns on her. WHAT IS THE MECHANISM FOR CONVERSION? DOES LO'S LOVER TURN EARLY OR IS IT A LATE BETRAYAL?
 * Lo eventually breaks down and tells Su/Sun everything there is to know. Su gets involved and goes to the next town over to see if things are better/worse there (moto scene)
+* Lo discovers her history with the Delvers.
+* Lo has a mysterious encounter with a lot of birds
+* Lo discovers one of the Delvers is leading the betrayal.
 * Lo tracks them out to an abandoned military installation, where their device is being built to unleash the badness. WHAT IS THE BADNESS. Lo realizes that in the past everyone had been creative and had been able to share their ideas with anyone.  She realizes the histories are wrong about that and the Bad Guys have also figured out radio broadcasting again. 
 * Somehow Lo, Fi & five others make it to the sacred tree to complete the song.  I think a bad guy interrupts it and eventually birds turn to Lo and bow to her.  She has SOMEHOW destroyed both the bad guys and the Delvers.  A new world dawns. 
 
