@@ -23,3 +23,6 @@ Articles:
 
 Word Count tool: 
 https://superuser.com/questions/353078/how-do-i-count-the-total-number-of-words-of-all-files-in-a-directory-and-its-su
+
+
+find . -type f -print0 | xargs -0 cat | wc -w
