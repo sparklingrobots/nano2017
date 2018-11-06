@@ -21,3 +21,5 @@ Housing is generally not an issue--after the Great Mourning, housing was overbui
 Who pays for infrastructure improvements? Medicine? Schooling? 
 (What holidays are there?)
 
+Raul stayed aroudn [ed note: yes technically i killed him but I might regret that] the spring after the padres left. They hadn't told him he had to stay but he felt that he should, somehow, stay. 
+

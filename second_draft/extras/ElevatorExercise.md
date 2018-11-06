@@ -1,5 +1,5 @@
+Summary: Weird writing exercise. 
 
----
 
 The elevator broke.  This is new and I'm immediately trying not to worry to find the best way out of the situation. I turn to look at the woman in the elevator to judge her reaction. She's calmly sizing up the situation, near as I can tell, and not terribly concerned about me.  She's about 6 feet tall--bigger than me--and has a short haircut, curly, very dark hair.  Her eyes are large, but so are all her features.  She is not very expressive so it's hard for me to know what's going on with her. 
 
@@ -64,9 +64,3 @@ I sit cross-legged on the floor--the first moment I remember there are about 12 
 "Well, the biggest "
 
 [This feels a bit elaborate and not a lot helpful. Thanks anyway writing exercise. ]
-
----
-
-
----
-
