@@ -37,3 +37,7 @@ Also did some slight clean-up as I went, removing some "a bit" and "just" and "i
 2018.11.06 
 There's a lot here, and I'm still wafflign on some of the biggest decisions -- what is actually the climax? What's actually happening here? Sometimes I hit on a solution that feels VERY RIGHT but I'm hesitant to commit because what if I have to throw everything else out?  I think the answer is to keep working, to keep smoothing off the rough edges. Many of these scenes are terrible anyway, so if I DO throw them out, what's the loss? 
 Am I stuck too much in outlining level? I can't decide if I should sink down into the scenes or stay at the 10,000 foot view.
+
+2018.11.08
+Yesterday I read some Pressfield and worked a bit on the plane--mostly thinking. Today I snuck a little chunk of time to work some of the rough edges off--to formalize how to make this into Hero's Journey, and got some exciting ideas. Lo stays at the Well, for example, and is driven off by Bad Delvers. 
+I'm now stuck on a whole thing with the tree--how do the Delvers get their power, what's the relevance of the harvest, etc. We'll get there but ugh big questions all around. 
