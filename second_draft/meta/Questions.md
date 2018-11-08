@@ -1,3 +1,49 @@
+# OVERVIEW
+
+## Concept
+Concept ~is a world without a strong sense of heroes~.
+
+I'm still looking for my Die Hard level concept. 
+
+## Theme
+Sharing power (learning to take your power, learning to share power). (Unless it's liberation or just power.)
+
+Every scene, every moment, must be on-theme. 
+
+## Genre 
+Might be time to read: Shawn Coyne Story Grid, because lord I have no idea what genres are. 
+
+Current theory is like: a mystery? It's not a murder mystery, it's more...thriller-y, maybe? 
+
+## The Inciting Incident
+
+The inciting incident is the fire building scene and the afternoon with the tree. 
+
+
+### How is the climax embedded in the inciting incident? 
+
+A) We learn more about the reason the powers are here and how they work.
+B) It happens at the spring (as the climax does).
+C) It involves the total destruction of good and bad delvers on a micro scale. 
+
+### Some old notes I'm not sure what to do with 
+The bad thing (whatever the bad thing is) must be brought into the culture, must be digested by it and transformed. 
+
+Could the bad thing threaten the tree?  Be the tree? Be inside the tree? 
+
+The tree had a spore in it that came loose when Fi psychically jostled it.  It infected mostly Delvers, who were vulnerable to the signals.  Those Delvers started to get stuck, resentful, isolated, and started turning people to their side. 
+
+The song that Fi saw is indeed a containment spell that has been perverted/forgotten & rewritten by the Delvers in the area, but they don't remember any more where it came from.  So they sing it to the Well instead of the tree. 
+
+The birds in the area know something of the tree.  They know that of the two lines of humans (Delvers & non) they will merge into one better species.  They know that Lo is the one to do it becuase they recognize her from her ancestor/reincarnated self, which is why they declare her King of All Birds. 
+
+The Delvers want to broadcast their fucked up and vaguely fascist views longer distance. So they resurrect an old radio station and start pirate broadcasting.  This is where Lo breaks in at the end of the book and has to disable the device (in retrospect everything about that scene should be Su.  Su is more mechanical and will want to save Io but will not feel SO fucked up by it.)
+
+In the mean time Lo has assembled her group to sing to the tree.  The singing will actually trigger a kind of collapse of the space/time continuum, so all the Protectors will be singing at the same time (why does this one trigger and no other time does?).  And when they do that, the tree will push out the antidote to the Bad Guys.  
+
+But they don't solve it in time to save the Delvers.  And the Bad Guys have proven that this kind of secretive culture & structure is too dangerous.  So Lo knows her next phase in life is teaching the Delver skills to everyoe.  
+
+
 # OUR HERO
 
 ## WHO'S THE HERO
@@ -129,54 +175,12 @@ YAY BOOK JACKET BLURB! ^^
 
 ## WHAT IS THE VILLAIN SPEECH
 
-# OVERVIEW
 
-Concept is a world without a strong sense of heroes.
 
 ## WHAT'S THE COUNTER THEME
 
 This one is fascinating.  In a world like the one I envision, what is the counter theme? If the theme is something like: we can grow together into a stronger species, what is the opposite theme? What will be the ongoing struggle in the other direction? Or will there be a crisis? There has to be a crisis or this book will really be terrible. 
 
-## WHAT IS THE INCITING INCIDENT?
-
-The inciting incident is one of two things: 
-
-Either our star becomes aware of some information that disrupts their sense of equilibrium and joy--some deeply threatening information that either needs to be kept secret or that needs to be brought to light (at great social cost, I'm guessing). 
-
-OR
-
-There's an inciting incident from the outside.  A new generation of babies is born unable to connect with each other.  A force from outside (another planet?) comes in and fucks shit up.  Animals gain the ability to speak to us and turns out they are huge dicks.  I don't know. 
-
-ALSO 
-
-Don't forget that bad things can just happen. 
-
-The inciting incident is the afternoon with the tree. I don't know what it incites yet, but that's the moment. 
-
-## WHAT IS THE EMBEDDED CLIMAX?
-
-I don't remember what an embedded climax is meant to be. But here's the thing I think it is: 
-
-The bad thing (whatever the bad thing is) must be brought into the culture, must be digested by it and transformed. 
-
-Could the bad thing threaten the tree? 
-
-Be the tree? 
- 
-Be inside the tree? 
-
-
-The tree had a spore in it that came loose when Fi psychically jostled it.  It infected mostly Delvers, who were vulnerable to the signals.  Those Delvers started to get stuck, resentful, isolated, and started turning people to their side. 
-
-The song that Fi saw is indeed a containment spell that has been perverted/forgotten & rewritten by the Delvers in the area, but they don't remember any more where it came from.  So they sing it to the Well instead of the tree. 
-
-The birds in the area know something of the tree.  They know that of the two lines of humans (Delvers & non) they will merge into one better species.  They know that Lo is the one to do it becuase they recognize her from her ancestor/reincarnated self, which is why they declare her King of All Birds. 
-
-The Delvers want to broadcast their fucked up and vaguely fascist views longer distance. So they resurrect an old radio station and start pirate broadcasting.  This is where Lo breaks in at the end of the book and has to disable the device (in retrospect everything about that scene should be Su.  Su is more mechanical and will want to save Io but will not feel SO fucked up by it.)
-
-In the mean time Lo has assembled her group to sing to the tree.  The singing will actually trigger a kind of collapse of the space/time continuum, so all the Protectors will be singing at the same time (why does this one trigger and no other time does?).  And when they do that, the tree will push out the antidote to the Bad Guys.  
-
-But they don't solve it in time to save the Delvers.  And the Bad Guys have proven that this kind of secretive culture & structure is too dangerous.  So Lo knows her next phase in life is teaching the Delver skills to everyoe.  
 
 ## WHAT'S THE CLIMAX
 
