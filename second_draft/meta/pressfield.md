@@ -9,11 +9,10 @@ Lo and her friends are in the forest preparing for the year's big harvest. All t
 
 2. hero receives call to adventure
 
-NEEDS TO BE WRITTEN.
 
 3. hero rejects call
 
-NEEDS TO BE WRITTEN.
+Lo runs from the scene of the crime. She tries to push it from her mind, assuming the Delvers will address it and calm everyone--but the ongoing silence from the Delvers drives her to extreme distress/anxiety.
 
 4. hero meets mentor. mentor gives hero courage to continue
 

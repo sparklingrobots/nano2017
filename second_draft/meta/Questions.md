@@ -17,7 +17,7 @@ Current theory is like: a mystery? It's not a murder mystery, it's more...thrill
 
 ## The Inciting Incident
 
-The inciting incident is the fire building scene and the afternoon with the tree. 
+Harvest -- double murder of Delvers. 
 
 
 ### How is the climax embedded in the inciting incident? 
