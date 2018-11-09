@@ -12,6 +12,8 @@ Dinner would be soon, after the Delvers finished their rituals under the tree.  
 
 Tomorrow they would harvest the bubbleweed that grew in the shadow of the trees--the harvest that only came every seven years or so. The abundance would last them the next seven years, though--dried bubbleweed used in teas and tinctures, though most of it went to the Delvers for their work. (Do I need to just always write more than I do? Is there anything to this scene other than setting the scene? Should there be at least a minor desire to carry us forward? Is it too much to be like LO RESENTS THIS)
 
+[Might be a good idea to give Lo something to be excited about that will be wrecked by the murder.]
+
 ---
 
 Lo rose early--it wasn't like her, but she woke up to the call of a bird, plaintive and loud. Su remained still, breathing undisturbed by the shriek.  It was almost like no one else had heard it.  She dressed quietly and headed out into the forest looking for kindling and fire material. A pine tree loomed ahead, enormous--maybe as old as the sacred willow. Well, nearly as old in any case. The pine cones would start the breakfast fire quickly so they wouldn't be late for the morning ceremoney. 
@@ -26,6 +28,25 @@ The Delvers are holding a secret ritual, which they always do.  Something goes w
 Suddenly a loud scream--a body is discovered.  Over the prone body -- a Delver -- is another Delver, stunned by their own actions but holding a bloody knife.  (Actually they might just kill each other.)
 
 Lo finds the bodies and stumbles off before anyone can know she's there. (possibly this is the start of chapter 2--Lo rejecting the call, pretending nothing happened, wondering when the news will get out)
+
+
+
+Lo Ponders Trees: 
+Lo felt the bark of the tree against her back as she woke up.  The day was clear and lovely.  She was glad for the tree and glad for the sky around her as well . She could hear the others cooking breakfast already. The smell of mushrooms cooking drew her closer to them. 
+
+She wanted to admit something to them but couldn't quite put her finger on it. There was something bothering her. She felt guilty a lot but couldn't understnand why or what made her feel that way.   
+
+This tree is very old. 
+
+She wonders if this tree lived through the Great Mourning. 
+
+Something no one regrets: Planting the right tree. 
+
+---
+
+She regarded the old tree, not for the first time.  She closed her eyes and felt the roots as they grew out from the small tree into the massive tree it is today.  The branches were not round but were buttressed, like wings out from the trunk.  Knots larger than her head protruded from the trunk, like knuckles on an old human hand.  The roots extended and extended and extended---a  good fifteen feet away you could still find yourself tripping on them. 
+
+The branches were full, the tree was strong. 
 
 
 Notes:
