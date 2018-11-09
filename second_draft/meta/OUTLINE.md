@@ -4,7 +4,7 @@
 
 Centuries ago, a man was sent on a mission to the New World--to embed a sonic weapon in a sacred place that would accomplish WHAT EXACTLY. 
 
-Modern times: 
+Rough outline:
 * Our protagonist, Lo, is lonely and unhappy with SOMETHING--she needs something. 
 * There is some kind of benevolent disturbance -- a holiday, a new class of Delvers? Something that shakes up the normal things around town so the weird shit isn't noticed as much.
 * A red-headed person appears on her doorstep with a mission from the Delvers (an organization that Lo wanted to join but was rejected from as a baby)--there is an evil growing in the world and the Delvers believe Lo can help.  The red-head had a vision of seven robed figures around a tree, singing as the world burned. 
