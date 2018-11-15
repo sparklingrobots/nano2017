@@ -1,5 +1,32 @@
 What are the 8 to 12 sequences (can be made of multiple scenes) in the book?
 
+1. Discovering the problem during annual harvest
+
+2.
+
+3.
+
+4. Lo at the Well
+
+5.
+
+6.
+
+7.
+
+8.
+
+9.
+
+10.
+
+11. Inside the abandoned air hangar -- dismantling generator
+
+12. Final sequence at the tree -- getting there, executing, result
+
+
+
+
 
 # Hero's Journey
 
