@@ -1,37 +1,25 @@
 SUMMARY: Lo tests Jy on the way to unlocking the tree. 
 
-Lo pulled the hedge clippers out of her bag and released the safety clasp. 
+Lo released the safety clasp on the hedge clippers she'd stolen from the Well. They'd been the best thing she could find to cut what she imagined the fence to be. 
 
-The sky was a curious green she'd heard about from books but never seen herself.  The clouds were heavy and looked almost purple somehow.  
+The sky was a curious green she'd heard about from books but never seen herself.  The clouds were heavy and looked almost purple somehow.  Dawn was coming but it might not get bright for days given the cloud cover. 
 
-The forest smelled so good.  She stopped for a minute and just sucked air in through her nose.  She had never smelled it this strong before--after the rain it was sometime stronger but this was like the plants themselves were calling out to her to be there to make things right. 
+The forest smelled so good.  She stopped for a minute and just sucked air in through her nose.  She had never smelled it this strong before--after the rain it was sometime stronger but this was like the plants themselves were calling out to her to make things right. 
 
-She resumed clipping the wires on the chainlink fence.  Where they'd even found this fence was beyond her--she'd seen it around but it was always ancient and this was new, almost shiny. 
+She opened the jaws of the hedge clipper and began snipping wires on the chainlink fence, putting all her strength into it.  Where they'd even found this fence was beyond her--she'd seen old chain link fences, dull with age and wear, grown over by vines.  This fence was new, shiny and strong.
 
-She cut a small hole big enough for her to slip through (though her pack caught on the wires).  As she crossed the barrier she felt the hairs on her body rise, almost as if she had crossed some other kind of boundary.  She felt them watching her. 
+When the hole grew big enough for her to slip through, she dropped the clippers to the ground and climbed through, her pack catching on the sharp ends of the fence.  As she crossed inside, the hairs on her body rose.  She swore she felt them watching her. At the very least they were coming after her. Time was short. She grabbed the patch of fence and put it back where it came from--at a glance it seemed relatively intact and might slow them down. Not that it mattered all that much. If they found her, it would be too late, either for them or for her.  The middle ground had disappeared long ago.
 
-She put the wire back in the hole, which seemed incredibly dumb but at a glance it seemed...relatively intact. 
+The tree was about two miles away. As she pushed through the undergrowth of the forest, it started to rain. She pulled up the hood on her jacket and pushed on.  Wet ferns slid against her legs.  Progress was slow in the dark, illuminated occasionally by lightning.  She felt her way slowly, roots appearing underfoot with no warning.  The ground was becoming very slick with occasional spots of deep mud. Once she heard the hoot of an owl in a nearby tree. 
 
-It didn't much matter anyhow. If and/or when they found her, it would be too late, either for them or for her.  
+After an unknown length of time, the sun had still not come up.  Her eyes, grown accustomed to the shape of trees and undergrowth, opened wide with shock as she saw a great square silouette in the forest. She had stumbled on a few buildings. Old apartment buildings, by the looks of them, faded into almost colorlessness, some covered in giant bougainvilleas or star jasmines (probably need new plants), but mostly mottled with lichens and moss.  Sliding glass doors stared at her, the dark rooms inside impossible to see into
 
-She pushed through the undergrowth of the forest, making a path where there wasn't any.  The tree was about two miles away and although there was plenty of undergrowth there were also buildings and other human-made things kept inside the fence. 
+She looked around for a dry spot under a tree and closed her eyes. She brought the image of the map to her eyes. Was this the right place? She'd had no idea there were old ruins so close to the spring.  She took some deep breaths and studied her memory of the place.  
 
-She walked past old apartment buildings, faded into almost colorlessness, some covered in giant bougainvilleas or star jasmines, but mostly they were naked in the darkening air.  She didn't like these uninhabited parts of town and always felt like someone was around who she couldn't see. 
+She jumped as she heard a familiar whistle from her right.  That was Fi's call. Anyone might have thought it a bird, except the forest was dead quiet under the droning wash of the rain.  Hope swelled inside her to hear that familiar call now and she wanted to run to it, to hug Fi and to apologize for everything.   [The last time she saw Fi, Fi was being dragged off by the Bad Delvers but Lo had not returned to save her.]
 
-It wasn't totally wrong. She jumped as she heard a familiar whistle from her right.  She looked around, crouching to hide herself in case Jy had turned.  
+Instead, she crept through the bushes and the whistle sounded again, closer this time.  She crouched, ready to fight if Fi had turned. She saw Fi move out of cover next to a building and they watched each other for a long time, two animals in the dark, sizing each other up.  
 
-God, she really couldn't handle it.  She needed all of them.  They all had to survive this together or not at all.  She shook her head--it was a ridiculous thought but it wouldn't leave her alone. 
+If they'd gotten to Fi, odds of success were low anyhow.  With Io there had been no sign of the change, but Lo looked closely anyhow, searching for signs. Fi seemed nervous, watching Lo intently but shifting her weight back and forth on her feet. And Fi seemed scared, more ready to turn and run than to fight.  
 
-She crept through the bushes and the whistle sounded again.  She saw Jy move out of cover next to a building and she looked for a long time. 
-
-With Io there had been no sign.  She looked closely at Jy.  They seemed nervous.  They seemed scared.  And then she realized it didn't matter: Without Jy they couldn't sing the song.  They couldn't complete the Action and without the Action they were lost. 
-
-She responded with her own signature whistle and stood up a half foot. Jy whipped around to look for her and smiled when they saw her.  Her legs swung through the brush as she ran, still crouching, to Jy's side.  
-
-They hugged. Jy whispered, "I didn't know if I'd make it through."
-
-Lo didn't say anything. 
-
-She clapped her hands on Jy's shoulders. "Alright, little Jy. Let's find the others and get this done."  They turned back toward the south, knowing the tree was there and they set off. 
-
-[Do we need to demonstrate how they all get there? It probably depends on how well we know them all.]
+And then Lo realized it didn't matter: Without Fi, Lo couldn't sing the song.  She needed all three voices and without any one of them, they were lost.  So, she responded with her own signature whistle and stood up a half foot. If Fi had turned, this was the opportunity to take a shot. 

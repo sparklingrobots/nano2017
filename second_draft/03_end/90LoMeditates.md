@@ -1,5 +1,7 @@
 SUMMARY: Lo feels rage, controls it with meditation. 
 
+This scene needs: a trigger. Why is she doing this? 
+
 She needed to learn to control her rage. 
 
 But everytime she contained it she only felt the pressure grow.  And the rage would grow with it. 

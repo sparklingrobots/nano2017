@@ -53,3 +53,8 @@ SD HistCon, as usual, proved a detriment to my writing life.  But I didn't ruin 
 I can't tell if the Pressfield book is actually helpful or not. It feels like it gives me some structure to aim for, but also I feel like crap when I can't write something insanely brilliant. Like, yes, every moment of the Godfather IS intentional and on-theme.  I'm not sure I'm there yet (let's be frank, I'm sure I'm NOT there yet).  So, part of me thinks maybe it just makes my standards too high. And part of me thinks that it's too vague as it is, that there is ever more to learn and study. And there is. 
 The closer I get to writing the way I want to, the farther I feel. It's exhausting. 
 Realizing also that I'm about 50% of the way through the month and less than 25% of the way to my reduced goals. But...once I get started on things I tend to pick up speed, I think. So let's hope tomorrow morning I can get up very early and write for at least an hour. 
+
+# 2018.11.15
+This morning I realized I wish I had been posting blogs as I went.  Maybe I still will--I'm "halfway" done but nowhere near the finish line. 
+Today I'm actually re-writing a scene instead of just moving things around and feeling overwhelmed.  So that feels good.  Things are starting to feel coherent and I notice a pattern--if I stay with it for too long in any given session, I get demoralized.  But the beginning of a sesssion usually feels pretty good.  My mind is fresh and not tired with wondering what all is going to happen. 
+I did blog about it! That felt good. As soon as it was done I realized I maybe should be sending to my newsletter instead, but that felt...not right. So I didn't. I'd rather burn those decision cycles on the book than on the details of the sharing. So I shared and moved on. 
