@@ -6,11 +6,11 @@ What are the 8 to 12 sequences (can be made of multiple scenes) in the book?
 
 3.
 
-4. Lo at the Well
+4. Lo at the Well, begins research
 
-5.
+5. Su gets involved.
 
-6.
+6. Lo goes to the tree alone and is attacked
 
 7.
 

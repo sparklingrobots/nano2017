@@ -1,4 +1,4 @@
-SUMMARY: Lo becomes King of All Birds. 
+SUMMARY: Lo becomes King of All Birds. The birds are the mentors that convince her to go.
 
 A few hours later she was asleep beneath the tree. Her head ached but she was exhausted--unable to summon the wash of rage from earlier.  She was defeated. She had been defeated. She had been rejected and now here she was, errand boy for the victors.  
 
