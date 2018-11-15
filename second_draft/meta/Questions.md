@@ -19,12 +19,15 @@ Current theory is like: a mystery? It's not a murder mystery, it's more...thrill
 
 Harvest -- double murder of Delvers. 
 
-
 ### How is the climax embedded in the inciting incident? 
 
 A) We learn more about the reason the powers are here and how they work.
+
 B) It happens at the spring (as the climax does).
+
 C) It involves the total destruction of good and bad delvers on a micro scale. 
+
+D) Whoever is involved swears that this will be put right. 
 
 ### Some old notes I'm not sure what to do with 
 The bad thing (whatever the bad thing is) must be brought into the culture, must be digested by it and transformed. 
@@ -122,11 +125,13 @@ UGH should I just pick one or is it better to keep letting it unspool at its own
 The puzzle will need to be surrounding the issue of the ethnobotany. Things that have crossed my mind: The forest scenes in Stranger Things (e.g. another universe touching ours), the Northern Reach trilogy (e.g. a menacing and inhuman threat)
 
 
-## WHO'S THE VILLAIN
+## THE VILLAIN
 
-The villain is (no joke) (but lulz) a ghost or virus or meme or something like that, embedded inside of the very old tree. It is unleashed on our poor unsuspecting magic redhead (not Lo) who realizes the grave danger but cannot stop it herself.  
+The villain is the impending social collapse caused by the spread of this virus or whatever it is. 
 
-The idea gets out and starts infecting people. FUD spread.  Hatred and division grow. Our loyal true-hearted narrator is the only one who can counteract, though she is bookish and shy and not likely to give great speeches to the world.  
+The villain is originally embedded inside of the very old tree. It is unleashed on our poor unsuspecting magic redhead (not Lo) who realizes the grave danger but cannot stop it herself.  
+
+The idea gets out and starts infecting people. FUD spreads.  Hatred and division grow. Our loyal true-hearted narrator is the only one who can counteract, though she is bookish and shy and not likely to give great speeches to the world.  
 
 So the villain is perhaps a mindless terror, rather than a malicious person.  But we have to give somebody a really good villain speech.  A really good villain speech from somebody so close to Lo, who knows her weaknesses and knows what will make her want to turn to the dark side. 
 
@@ -134,24 +139,9 @@ The terror found the man with the coffee.
 
 TODO: What is the relationship between the man with the coffee / the virus / the ancient cult / Io? 
 
-## WHAT IS THE MONSTER?
+The tree has a fungus inside of it? How does this interact with the fact that perhaps this malicious force comes from outside of the relatively small and isolated community? 
 
-Monsters in gardening include: 
-* Animals that eat everything
-* Poisons
-* Drought
-* Mold
-* Bugs 
-* Floods/natural disasters
-
-Monsters in history include: 
-* Mold
-* Decay
-* Loss
-* Disruptive events that destroy records
-* Disinterest
-* Fallibility of memory
-* Ghosts 
+I like the idea that there is a fungus like the one that controls ants that takes these people over and needs to be removed or counteracted. I'm not totally sure how a song does this, and also it counteracts the whole idea that people are just kind of inherently weak and will make some bad decisions.  Hmm hmm hmm. This book is probably destined to be bad but I really want it to be A Book That Can Be Read. 
 
 Mold is an obvious overlap here.  Mold as it grows from small spores, a treacherous threat that works, I suppose in much the way that this culture works--communally, collectively, piece by small piece, transforming into something good (to the mold). 
 
@@ -161,8 +151,9 @@ Here's what I'm thinking:  The glass tube they put in the tree is a mold, but it
 
 ## HOW DO WE KEEP THE MONSTER FRONT AND CENTER IN ACT TWO?
 
-Act two is going to be a lot of research and will need *soething* else to happen to not be terrible. 
+So the villain appears as collapsing social structures, decaying support systems, bad communications, drunkeness, bad behavior among the Delvers, maybe some physical threat too. 
 
+There will be scary scenes at the Well where Lo finds things she does not expect and eventually learns the Delvers are Bad News. 
 I think *we* know that Io has turned but Lo does not.  So we see Io creeping around and "helping" Lo but we know that it's bad news. 
 
 ## WHAT ARE THE STAKES

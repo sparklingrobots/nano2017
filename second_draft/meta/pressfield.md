@@ -3,6 +3,7 @@ What are the 8 to 12 sequences (can be made of multiple scenes) in the book?
 
 # Hero's Journey
 
+ACT ONE
 1. hero starts in ordinary world
 
 Lo and her friends are in the forest preparing for the year's big harvest. All the Delvers are here, it's a big chaotic time. The inciting incident is witnessed by all but only understood by fi and Lo. (murder? harvest spoiled? leader killed or corrupted? climax embedded. it has to happen at the spring. )
@@ -17,6 +18,8 @@ Lo runs from the scene of the crime. She tries to push it from her mind, assumin
 4. hero meets mentor. mentor gives hero courage to continue
 
 Fi comes to Lo with a summoning from the Delvers--Fi shares her fear and bolsters Lo's courage. 
+
+ACT TWO -- Act Two belongs to the VILLAIN. Make sure the villain is front and center all the dang time. 
 
 5. hero crosses threshold, enter special world.
 
@@ -34,6 +37,8 @@ Lo meets lots of Delvers, and begins to understand more about the world of the D
 7. hero confronts villain, acquires treasure
 
 As Lo finishes her song and prepares to share it with the Delvers, she is waylaid by the Bad Delvers, who try to kill her and destroy her work. 
+
+ACT THREE
 
 8. the road back. hero escapes special world, trying to 'get home'
 
