@@ -59,4 +59,6 @@ Su was weeping when she walked in the door. Lo stood up, startled--it wasn't com
 
 Finally Su felt whole enough to begin speaking and started telling Su everything: about the car, the threesome, about the knife. 
 
-She kept apologizing about the library but Lo wouldn't hear it.  They sat on the couch together, arms entangled, as Su recovered.  The sun outside was beginning to set in that golden yellow color.  It was time to go back to the drawing board.  
+She kept apologizing about the library but Lo wouldn't hear it.  They sat on the couch together, arms entangled, as Su recovered.  The sun outside was beginning to set in that golden yellow color.  It was time to go back to the drawing board. 
+
+#TODO is it possible that Su just flat out doesn't return? That Lo has to go rescue them? 
