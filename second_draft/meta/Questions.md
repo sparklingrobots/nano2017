@@ -15,6 +15,15 @@ Might be time to read: Shawn Coyne Story Grid, because lord I have no idea what 
 
 Current theory is like: a mystery? It's not a murder mystery, it's more...thriller-y, maybe? 
 
+Mystery: Also known as a "mystery story" or simply a "mystery", Mystery Fiction is a genre where the plot revolves around a mysterious happening that acts as the Driving Question.
+
+In a standard mystery, the explanation for the mystery is gradually revealed by the investigative process of the protagonists. This is accomplished through a mixture of intelligence, ingenuity, the logical interpretation of evidence, and sometimes sheer luck. Many mysteries use a Mystery Arc as the basis of their narrative structure, though variations on the theme can frequently be found.
+
+Queer romance? 
+
+https://tvtropes.org/pmwiki/pmwiki.php/Main/ConspiracyThriller
+https://tvtropes.org/pmwiki/pmwiki.php/SoYouWantTo/WriteAConspiracyTheory
+
 ## The Inciting Incident
 
 Harvest -- double murder of Delvers. 
