@@ -1,10 +1,17 @@
 SUMMARY: Singing the song. 
 
+They pushed through the forest more quickly now--feeling more confident as a pair, plus the sunrise, weak as it was, started to give them a bit of light to work with...which meant the Bad Guys would be here soon, too. 
+
+
+
 The tree was gone. 
 
 The tree was gone.  They had cut down the tree!
 
 How could they have cut down the tree?
+
+[Who cut it down, and why?]
+
 
 She spun in a circle.  There were dozens of trees around but they were young in comparison.  
 The corpse of the big tree lay on the ground.  Some of the leaves were still green but it was dying.  It had fallen on the small low building nearby, crushing it under its weight. 
