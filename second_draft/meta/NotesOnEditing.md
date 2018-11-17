@@ -67,3 +67,5 @@ So, today was really hard. Did not feel good about pretty much anything, includi
 
 # 2018.11.17
 This morning I feel compelled to flesh out Lo and Fi a bit more--make them into real people so I can write the middle of the book at long last. I have tried this kind of exercise before, filling out little sheets with factoids about the characters, but I never really *find* them that way.  I just have some weird ragged puppet to push around. I feel myself pushing up against the limits of my weaknesses--I don't like to think about what drives other people; I like to let them take care of themselves. Well, time for some personal growth, y'all! It's a cold Saturday and I'm doing laundry, so why tf not?
+
+It somehow feels satisfying to nail certain things down. I know the year now! I don't know what difference it makes, and it might change, but it feels good. Fi is younger than Lo. 
