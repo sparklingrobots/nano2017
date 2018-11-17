@@ -9,3 +9,7 @@ Helpful Redshirt #1 wasn't up yet, but he walked quietly towards the old tree to
 As he entered the drooping branches of the old willow, he felt that old magic he associated most strongly with the Delvers and his first entry as a child.  The long dangling green growth, catkins or whatever ripe in the early summer, brushed his face as he moved in.  The spring was utterly silent, though the soft rippling on the surface gave it away as more than just a pool.  The pale sand at the bottom moved constantly where the water bubbled up endlessly from the earth--pure like nothing else in the world, cold and clear. 
 
 He got to the base of the tree and dropped the bundle, far enough now that it was likely no one would hear. He stiffened as the clatter seemed to silence all the birds that had begun singing. After a heartbeat they resumed their songs and he resumed his work. 
+
+As he set up the ring around the tree and the spring, he passed near the tree.  He noticed a streak running down the trunk--he'd never seen anything like that on the tree before, though he was hardly a botanist. He ignored it and went back to work driving the stakes into the ground to delineate the sacred area from the vulgar--mostly so none of the non-Delvers would find their way into the sacred bit.  
+
+The streak remained in his mind, 
