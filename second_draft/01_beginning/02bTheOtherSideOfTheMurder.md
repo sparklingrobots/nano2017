@@ -12,4 +12,4 @@ He got to the base of the tree and dropped the bundle, far enough now that it wa
 
 As he set up the ring around the tree and the spring, he passed near the tree.  He noticed a streak running down the trunk--he'd never seen anything like that on the tree before, though he was hardly a botanist. He ignored it and went back to work driving the stakes into the ground to delineate the sacred area from the vulgar--mostly so none of the non-Delvers would find their way into the sacred bit.  
 
-The streak remained in his mind, 
+The streak remained in his mind, bothering him. Was the tree okay? He put down the remaining sticks and went back up to the tree, closer this time. It looked like sap--he reached out to it and felt the sticky substance hardening along the side of the tree. Pressing his fingers together, he felt the stickiness pulling at his skin.  
