@@ -26,7 +26,7 @@ Her choice is made for her when SOMEONE turns on her and tries to murder her in 
 
 ~The bads start marching in from their town, thinking the signal has gone out.~ Lo has instead risen her own army of amateur delvers from the society at large.  
 
-The song has to neutralize the Bads as well. Could it be a song of releasing power/ambition? Could it be the song of mourning that brings them to a halt? 
+The song has to neutralize the Bads as well. Could it be a song of releasing power/ambition? Could it be the song of mourning that brings them to a halt?  Current theory is they are all bound to the Queen; they have some kind of fungal infection that allows them to communicate very closely but it leaves them susceptible to corruption (which is what the BA Delvers are). This is why the song disables the Delvers so critically--it's very painful for them to be isolated.  
 
 End result I want: Delving is now a distributed skillset among the population.  Peace with neighbors has been achieved, though they are very different from our society. Delvers go there to help teach skills of delving, no longer kidnap--it's a peaceful trade relationship. 
 

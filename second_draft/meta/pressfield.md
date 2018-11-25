@@ -18,7 +18,7 @@ What are the 8 to 12 sequences (can be made of multiple scenes) in the book?
 
 9.
 
-10.
+10. 
 
 11. Inside the abandoned air hangar -- dismantling generator
 
@@ -63,7 +63,7 @@ Lo meets lots of Delvers, and begins to understand more about the world of the D
 
 7. hero confronts villain, acquires treasure
 
-As Lo finishes her song and prepares to share it with the Delvers, she is waylaid by the Bad Delvers, who try to kill her and destroy her work. Her battle with them and eventual defeat are the biggest personal challenge for her. 
+As Lo finishes her song and prepares to share it with the Delvers, the Queen comes to listen to the song. The effect on the queen is extreme, and is broadcast throughout the entire Well.  Those who have been badly infected die. she is waylaid by the Bad Delvers, who try to kill her and destroy her work. Her battle with them and eventual defeat are the biggest personal challenge for her. 
 
 ACT THREE
 
