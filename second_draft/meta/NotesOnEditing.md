@@ -92,6 +92,7 @@ Last night at Choreographers' Evening I thought a lot about what it is to be vis
 God above, I am so tired, like wanting to sleep right here in the Starbucks. That's my getting 7 hrs of sleep last night, I guess. :( I hate when I get tired while writing, feels lke a type of resistance that I don't know how to get around. I suppose if I were to go and actually sleep when I feel tired, I probably wouldn't get tired.  
 The plot holes are freaking me out and not sure how to resolve or where to focus my efforts.  I'm realizing many of my descriptive scenes can be much longer than they currently are. I used to elaborate too much on parts of the scene that don't matter (saying hello) and when I cut that down, I think I also reduced the amount of description I used. 
 I AM getting better, or at least more knowledgeable. My instincts are starting to feel like they are more than just blind fumblings. But LORD this is a lot of work. 
+One thing I am beginning to realize: Probably when I'm like "WAIT HOW DOES THIS PLOT WORK" it may be worth just writing the scene a few different ways and seeing which one fits best. That seems so exhausting but it may be more reasonable than committing whole hog to whatever nonsense comes out of the pen first. 
 
 
 # LINKS I WANT TO REVIEW
