@@ -20,18 +20,19 @@
 
 Last year I used github to store and share a really bad book I wrote during NaNoWriMo 2017 [https://nanowrimo.org].  
 
-This year I'm using github to store the artifacts of the project as I edit it into something closer to a real book. This is my first NaNoEdMo (well, maybe not "national" since I'm doing it at the wrong time). 
+This year I'm using github to store the artifacts of the project as I edit it into something closer to a real book. This is my first NaNoEdMo (well, maybe not "national" since I'm doing it at the wrong time).
 
 # What is NaNoEdMo?
 It's National Novel Editing Month [https://nanoedmo.com]
 
-To win, I must log ~50~ 40 hours of verified editing in one month. (I brought this down from the original 50 hour goal because that was really not going to happen.)
+To win, I must log ~50~ ~40~ 25 hours of verified editing in one month. (I brought this down from the original 50 hour goal because that was really not going to happen.)
 
 Editing is defined as changing previously written material. Editing does not include writing a completely new novel. It does not include planning or researching. It does include anything from correcting the grammar and spelling to substantial rewriting of the novel. So here we are. 
 
-# Hours logged so far: 10.93/40. (~22%)
+# Hours logged so far: 20.48/25. (~82%)
 
 # 2017 word count: 39,166 / 50,000. 
+# 2018 word count (as of 2018.11.25, notes included): 128,076
 
 ## How to read
 
