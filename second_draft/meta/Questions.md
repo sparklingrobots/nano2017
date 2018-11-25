@@ -113,6 +113,12 @@ UPDATE: the crowbar is not this.  She does feel those things but mostly the main
 
 ## WHAT IS THE JEOPARDY
 
+A) Lo continues to uncover the ways in which the BA Delvers are coming for her/them. They are threatening the very fabric of Delver society. There won't be a home for Lo to return to. 
+B) THEN Lo figures out the Delvers are bad anyway. She needs to get a LOT of info here. 
+C) MEANWHILE Fi is suffering under the oppression of the Delvers and we see her deteriorating badly.  If we don't fix things, Fi's going to lose it completely. 
+D) 
+
+
 The Jeopardy is that the Delvers are flawed but better than the alternatives that are arising in other places. 
 
 The jeopardy is her two conflicting needs.  She will be forced to choose.  Perhaps in her choosing she can outwit the villain and get them both--but in her heart she will know that she has to make a choice.  
