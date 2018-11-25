@@ -58,18 +58,17 @@ Lo waited anxiously in the silent library, eyes locked on the woman across the t
 
 The woman began singing along, her voice hoarse, reedy--almost nasal.  It was easily the worst singing voice Lo had ever heard, a shocking change from her warm and supple speaking voice--but the woman did follow the melody. And something about this raw voice, this voice that never got used, overwhelmed Lo with a feeling of sorrow. 
 
-Lo looked down at the table, she thought about running, she thought about holding this woman, but instead she just sat there with the sheet music in her hands.  As she listened, the woman kept singing. Her face grew flushed, and sweat appeared near her hairline.  By the end of the song, she was gasping for breath, hands grabbing the table fiercely. She tries to speak but slumps in the table.
+Lo looked down at the table, she thought about running, she thought about holding this woman, but instead she just sat there with the sheet music in her hands.  As she listened, the woman kept singing. Her face grew flushed, and sweat appeared near her hairline.  By the end of the song, she was gasping for breath, hands grabbing the table fiercely. She tries to speak but slumps in the table. 
 
-With some effort, she raised her head and looked directly in Lo's eyes and opens herself up--Lo feels deep love, hope for the future. She sees images of the tree ceremony as Fi has described it to her, and she sees that little bird that has been following her around--how does she know about that?? She is filled with relief that the woman survived, and some doubt that maybe the song won't work.  
+Somewhere far away in the Well, there are shouts, carrying faintly into the library. 
 
-All the images are replaced with a single word: "Run".  [somehow the queen needs to convince Lo that the song is perfect.] Lo stares at her and is shocked to see the woman's head loll back as her eyes shut. Her face goes slack.  Lo jumps back and then moves in close. She is still breathing, she must have just passed out.  Lo looks around uncertain of what to do next, and then begins to hear voices in the hallway--angry voices.  
+With some effort, the woman  raised her head and looked directly in Lo's eyes.  Lo held her gaze, and barely notices the woman's eyes beginning to dilate. Suddenly the woman's eyes are almost black.  Lo feels deep love, hope for the future. She sees the old tree, surrounded by hooded figures--the tree ceremony as Fi described it to her.  She sees a great library, not empty and hidden underground like this one, but enormous, full of life and light, dozens of people working diligently together. At last she sees herself in the library, with that little bird that has been following her around perched there on her shoulder. She is standing in front of a large group of children, who are all singing this song she's been working on.  
 
-She remembers the warning. She gathers her papers, the portable recorder, and turns away from the main exit.  A door she never noticed is cracked behind her--it must be where the woman came in.  Lo rushes towards it as she hears the main door slam open. The angry librarian yells when she sees the queen, and then roars Lo's name.  
+Suddenly the images are replaced with a single word: "Run".  Lo is shocked to see the woman's head loll back as her eyes shut. Her face goes slack.  Lo jumps back and then moves in close. She is still breathing, she must have just passed out.  Lo looks around uncertain of what to do next, and then begins to hear voices in the hallway--angry voices. The shouts are much closer. 
 
-As Lo runs down the hall, blind to where she is going, she realizes she is crying. 
+She gathers her papers, the portable recorder, and turns away from the main exit.  A door she never noticed is cracked behind her--it must be where the woman came in.  Lo rushes towards it as she hears the main door slam open. The angry librarian yells when she sees the queen, and then roars Lo's name.  
 
 #TODO: I THINK THE SONG IS TO COUNTERACT THE FUNGUS.  SHE DOESN'T REALIZE IT WILL KILL PEOPLE? NAH, THAT WRECKS THE TENSION OF THE WHOLE THING.  SHE DOESN'T KNOW WHAT WILL HAPPEN BUT IT'S UNLIKELY TO BE GOOD.
 
-#TODO: FLIGHT FROM THE WELL. FINDING ALL THE WOUNDED DELVERS. 
 
 #TODO: FI'S EXPERIENCE OF THE ABOVE AS ONE OF THE QUEEN'S CHILDREN.  HOW SHE RECOVERS AND ESCAPES. SHE HAS TO FIGHT UN ONE LAST TIME. 
