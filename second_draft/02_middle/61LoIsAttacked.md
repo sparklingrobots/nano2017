@@ -1,17 +1,19 @@
 SUMMARY: Lo is attacked while singing at the tree.
 
-The wind carried dust in it as she climbed over the fallen tree to approach the spring. 
+The wind carried dust in it as she climbed over the fallen tree, heading deep into the forest surrounding the Well. She was tired of being cooped up, listening only over headphones because of an angry librarian.  She wanted to hear the sounds of the forest as she sang, to know what animals would be around.  The spring was too far--they'd notice she left--but the forest here was very similar.  
 
-She knelt below the tree, in the mud, on the leaves, and bent her head. 
+She walked for an hour, at least, legs striding across the forest floor, hands brushing against trunks or holding branches away from her face.  Birds sang around her (NAME THEM) and once she saw a deer before it bolted.  She didn't want to be locked out of the Well, so it probably was time to stop.  She knelt below a tree, a big willow like the old tree, but no where near as big. She sunk her fingers into the mud, pushing through toughened dried leaves, and bent her head. 
 
-She was lost.  She had found the song, she thought, but she didn't know all the parts. 
+She had to admit she was lost.  She thought she had found the song, but something seemed...not quite right about it.  She wasn't going to risk it with Fi yet--it wasn't safe. 
 
-She started to sing what she did know: 
+Quietly, the sound rising up from her chest and into her throat, a warm and low sound, she started to sing what she did know: 
 
 Together we grow
 We heal together
 Together we gather
 We love together
+
+She imagined the other parts, overlapping--you could hardly make out any word but a staggered chorus of the word "Together". 
 
 And cut short. Her ear had been filled with a piercing pain when she reached the last line--she couldn't tell if it was a bad noise or something else, but her ear was hurting.  
 

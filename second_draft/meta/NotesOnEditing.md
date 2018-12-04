@@ -94,6 +94,12 @@ The plot holes are freaking me out and not sure how to resolve or where to focus
 I AM getting better, or at least more knowledgeable. My instincts are starting to feel like they are more than just blind fumblings. But LORD this is a lot of work. 
 One thing I am beginning to realize: Probably when I'm like "WAIT HOW DOES THIS PLOT WORK" it may be worth just writing the scene a few different ways and seeing which one fits best. That seems so exhausting but it may be more reasonable than committing whole hog to whatever nonsense comes out of the pen first. 
 
+# DECEMBER
+
+## 2018.12.03
+Okay, well, I haven't been here in 8 days. I've thought about the book a fair amount but not enough to stay in the world. I'm reading Emergent Strategy which is helping me remember the brain space I was in last year while writing. 
+I'm really writing this as a warm up to actually getting to work. Plan is to do 15 hours in December. A hair less than November but it feels sustainable. 
+Today I spent only 12 minutes, but I needed to get oriented before my big session tomorrow. And I feel I've done it! The answer is: Open files until one of them tells you how to work on it. (I also looked on github to see what I haven't touched in a while. Very handy.)
 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
