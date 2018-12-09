@@ -31,9 +31,23 @@ We let the GM fix a lot of things about our eocological problems.  We are still,
 There is also a strong musical component. I'm sure there's a novel that I'm biting this whole singing-to-the-plants thing from but I can't name it at present. 
 
 ## What's the Genre?
+
+A visionary conspiracy thriller. I want a thriller that can happen in a world I want to live in and FOR FUCK'S SAKE I want a thriller with a feminine/female/nb protagonist and NOBODY GETS TO FUCKING SWOOP IN AND SAVE HER. 
+
+
+Books that could be templates: 
+Snow Crash
+Erin Brockovich 
+The X Files
+Stranger Things
+Sicario
+Da Vinci Code (eeek)
+
 Might be time to read: Shawn Coyne Story Grid, because lord I have no idea what genres are. 
 
-Current theory is like: a mystery? It's not a murder mystery, it's more...thriller-y, maybe? 
+Conspiracy Thriller: A thriller centered on the conflict between The Protagonist and The Conspiracy, often with an elaborate Conspiracy Theory as the background.
+
+The story starts off with either a minor meaningless crime or a high-profile murder. A person related to the criminal blamed or the uncovered victim notices some odd discrepancies in the official story and digs deeper. Before the protagonist(s) realize(s) it, they are caught in a multi-layered plot that involves possibly EVERYONE, especially those who are tasked with the official investigation... meaning that the hero/heroine can't go to the cops... or the press... or that janitor in the hallway they just passed who looks a little too much like the guy who'd been shadowing them the last day or so...
 
 Mystery: Also known as a "mystery story" or simply a "mystery", Mystery Fiction is a genre where the plot revolves around a mysterious happening that acts as the Driving Question.
 
@@ -44,12 +58,6 @@ Queer romance?
 https://tvtropes.org/pmwiki/pmwiki.php/Main/ConspiracyThriller
 https://tvtropes.org/pmwiki/pmwiki.php/SoYouWantTo/WriteAConspiracyTheory
 
-
-I'm thinking like... a visionary mystery novel.  An informational mystery novel. 
-
-Unsurprisingly Snow Crash continue to point the way but I can't put my finger on how.  
-
-IT'S A THRILLER!! DUH.  This is always what I write (that's a lie) but it's totally a thriller. I love reading thrillers but they're all full of ridiculous men and women treated like trash.  I want a thriller that can happen in a world I want to live in and FOR FUCK'S SAKE I want a thriller with a feminine/female/nb protagonist, this shit shouldn't be that hard and NOBODY GETS TO FUCKING SWOOP IN AND SAVE HER. 
 
 ## The Inciting Incident
 
@@ -63,7 +71,9 @@ B) It happens at the spring (as the climax does).
 
 C) It involves the total destruction of good and bad delvers on a micro scale. 
 
-D) Whoever is involved swears that this will be put right. 
+D) Whoever is involved swears that this will be put right.
+
+E) It puts Lo in the position of having to decide waht to do.
 
 ### Some old notes I'm not sure what to do with 
 The bad thing (whatever the bad thing is) must be brought into the culture, must be digested by it and transformed. 

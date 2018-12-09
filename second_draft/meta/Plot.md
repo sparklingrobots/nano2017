@@ -1,5 +1,118 @@
 # OUTLINE 
 
+## HERO'S JOURNEY
+
+### What are the 8 to 12 sequences (can be made of multiple scenes) in the book?
+
+1. Discovering the problem during annual harvest
+
+2.
+
+3.
+
+4. Lo at the Well, begins research
+
+5. Su gets involved.
+
+6. Lo goes to the tree alone and is attacked
+
+7.
+
+8.
+
+9.
+
+10. 
+
+11. Inside the abandoned air hangar -- dismantling generator
+
+12. Final sequence at the tree -- getting there, executing, result
+
+
+### Hero's Journey
+
+#### ACT ONE
+1. hero starts in ordinary world
+
+Lo and her friends are in the forest preparing for the year's big harvest. All the Delvers are here, it's a big chaotic time. The inciting incident is witnessed by all but only understood by fi and Lo. (murder? harvest spoiled? leader killed or corrupted? climax embedded. it has to happen at the spring. )
+
+2. hero receives call to adventure
+
+
+3. hero rejects call
+
+Lo runs from the scene of the crime. She tries to push it from her mind, assuming the Delvers will address it and calm everyone--but the ongoing silence from the Delvers drives her to extreme distress/anxiety.
+
+4. hero meets mentor. mentor gives hero courage to continue
+
+Fi comes to Lo with a summoning from the Delvers--Fi shares her fear and bolsters Lo's courage. 
+
+#### ACT TWO -- Act Two belongs to the VILLAIN. Make sure the villain is front and center all the dang time. 
+
+5. hero crosses threshold, enter special world.
+
+Fi and Lo travel to the Well
+
+6. hero encounters enemies and allies, undergoes ordeal that will serve as their initiation
+
+Lo meets lots of Delvers, and begins to understand more about the world of the Delvers and starts to see the dark side of them. She meets both good and bad Delvers and experiences two things: 
+
+1) She is threatened by a Delver, or has other scary Delver experience.
+2) Council of Delvers, initiating her into their ranks so she can do her work. 
+
+(OMG MAYBE LO DOES ALL THE RESEARCH IN THE WELL AND NOT AT HER OWN HOME, HENCE SHE GETS A LOT OF TIME TO SPEND WITH THEM AND LEARN ABOUT THE BADNESS) (POSSIBLY ALSO WHY SU HAS TO GO ON HER BIKE RIDE?)
+
+7. hero confronts villain, acquires treasure
+
+As Lo finishes her song and prepares to share it with the Delvers, the Queen comes to listen to the song. The effect on the queen is extreme, and is broadcast throughout the entire Well.  Those who have been badly infected die. she is waylaid by the Bad Delvers, who try to kill her and destroy her work. Her battle with them and eventual defeat are the biggest personal challenge for her. 
+
+#### ACT THREE
+
+8. the road back. hero escapes special world, trying to 'get home'
+
+She runs away from the Well. Fi and a few other Delvers flee with her. They need to find a new way to broadcast since the Well is destroyed in the escape (fire?) (everyone deafened or otherwise wounded?)
+
+9. villains pursue hero. hero must fight/escape again. 
+
+They follow!  Perhaps they take refuge in the old hotel, or perhaps they simply end up there via hijinks.
+
+10. hero returns home with treasure, reintegrates into ordinary world, but now as changed person, thanks to their ordeal and experiences on the journey
+
+After escaping, Lo and co. finally unleash the song, fighting off the bads.  Not only is Lo changed, but the whole world is undone--and time for a new beginning.
+
+
+## ONE SENTENCE VERSION:
+
+#todo: Take an hour and write a one-sentence summary of your novel. Something like this: “A rogue physicist travels back in time to kill the apostle Paul.” (This is the summary for my first novel, Transgression.) The sentence will serve you forever as a ten-second selling tool. This is the big picture, the analog of that big starting triangle in the snowflake picture. (https://www.advancedfictionwriting.com/articles/snowflake-method/)
+
+In a world that has healed from the modern apocalypse, seeds from the past threaten a stagnant society. 
+
+Long after society collapsed, the Delvers keep order--until one person saves and destroys the world in a moment. (20)
+
+A bicycling historian saves the world from an inflexible religious order and a historical evil all at once. (17)
+
+A rejected healer turned historian discovers the secret that will save the world from an ancient evil--but will she be able to stop the unraveling of the world she loves? 
+
+A rejected healer, a historian and a small child are trapped in an abandoned industrial facility, threatened by a man hellbent on undoing the social order.  
+
+A centuries-old secret threatens to unravel the peaceful world of the Delvers, unless Lo can stop it--but will she have the courage to risk the structures she is trying to protect? (34)
+
+Humanity has found peace--but a secret threatens to come to light that will destroy everything. (No characters.)
+
+Lo has to solve the puzzle before the bad guys outnumber the good. 
+
+In a world where sound is everything, an amateur historian finds herself at the crux of society--choosing who will win and who will lose. 
+
+After Fiona abandons the religious cult that raised her, she discovers a secret that threatens the very existence of the cult--will she choose them or will she choose herself?
+
+As the anniversary of the Great Mourning approaches, everything is chaos. Dark forces have taken a few Delver towns and now the Delvers are employing the most dangerous weapon they have (Lo) in a desperate gamble to stave off the darkness.  But Lo doesn't get there in time so by the time the threat is stopped, most of the Delvers are dead. Lo and Fi have to bring back society in their own image. 
+
+I like this summary  -- Lo is the force of creativity that causes some destruction but brings about something marvelous. 
+
+
+The Delvers keep harmony--until one of them is brutally murdered. Suddenly, someone they rejected is their only hope for maintaining peace and control--and she's not sure she's on their side. 
+
+
 ## Tara's Kinda Rough Plot Summary to Just Figure Out If I Know What Happens In This Book Chronologically
 
 “Music directly imitates the passions or states of the soul; hence, when one listens to music that imitates certain passion, he becomes imbued with the same passion; … In short, if one listens to the wrong kind of music he will become the wrong kind of person; but, conversely, if he listens to the right kind of music he will tend to become the right kind of person.”
@@ -11,11 +124,11 @@ Background:
 * Our protagonist, Lo, is lonely and unhappy with SOMETHING--she needs something. 
 
 
-This society is relatively small and isolated, ruled by a class called the Delvers. The Delvers are a mix of highly trained and naturally gifted--they are able to manipulate emotions with sound as well as by touch.  They are extremely sensitive to emotional states and can calm entire populations.  Some Delvers have particular gifts -- eg Fi has a connection with plants. (How did the Delvers get so good at this? Where do they cull from?)
+This society is relatively small and isolated, ruled by a class called the Delvers. The Delvers are a mix of highly trained and naturally gifted--they are able to manipulate emotions with sound as well as by touch.  They are extremely sensitive to emotional states and can calm entire populations.  Some Delvers have particular gifts -- eg Fi has a connection with plants. They acheived this level of skill through a combination of skill and because of a very rare and specific tree they use to make potions. They use the potions both for themselves and also for calming the population around them. 
 
-The Delvers rule over our society, but they also send emissaries to recruit/kidnap children with natural skills to bring them into the fold. They have been doing this for generations so most of the group is unusually sensitive--they are just untrained, used for breeding stock.  The other societies have many different ways of being. The Delvers are mostly really good with a few who are baddish apples.  Still things are progressing as normal. The Delvers manage foreign relations with other communities in some way that keeps everyone safe but it's not clear how they do that. 
+The Delvers rule over our society, but they also send emissaries to recruit/kidnap children with natural skills to bring them into the fold. They have been doing this for generations so most of the group is unusually sensitive--they are just untrained, used for breeding stock.  The other societies have many different ways of being. The Delvers started out as an organization devoted to peace keeping, higher evolution of humans, enlightenment, and other good things.  But over time they lose focus on what they are here for and start to take power for power's sake.  The Delvers manage foreign relations with other communities in some way that keeps everyone safe but it's not clear how they do that to the people in the community. There are not many outside visitors though within a county-area you are welcome to travel among towns. 
 
-The baddish apples are those who don't agree with the policy of taking children against their will--they want to stop the Delvers from existing.  They start collaborating with another WAY WORSE culture that still has a lot of technology (radios). They plan to broadcast signals that will disable the Delvers. The main BA delver is naive to the avarice and evil of the outsiders. (NEED CHARACTER)
+There is a new strain of Delvers who are not at all dedicated to the principles of the Delvers--they are just after power. These power-hungry Delvers end up merged with another group of Delvers who who don't agree with the policy of taking children against their will. The Bad Delvers and the ones who don't like the kidnapping have decided they want to stop the Delvers from existing.  They start collaborating with another WAY WORSE culture that still has a lot of technology (radios). They plan to broadcast signals that will disable the Delvers. The main BA delver is naive to the avarice and evil of the outsiders. (NEED CHARACTER)
 
 At the seven yr harvest of something cool, there is a murder of two Delvers--one bad apple Delver was trying to ruin the harvest; one good apple Delver tried to stop them and they both ended up dead. 
 

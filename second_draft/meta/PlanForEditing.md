@@ -17,6 +17,7 @@
 BOOKS TO READ: 
 * Revising Prose, Richard Lanham
 * Nobody Wants to Read Your Shit
+* Beating the Story
 
 Articles: 
 * Snowflake method: https://www.advancedfictionwriting.com/articles/snowflake-method/ 

@@ -1,8 +1,10 @@
 SUMMARY: Lo is attacked while singing at the tree.
 
-The wind carried dust in it as she climbed over the fallen tree, heading deep into the forest surrounding the Well. She was tired of being cooped up, listening to the song only over headphones because of an angry librarian. Besides, she needed to hear the sounds of the forest as she sang, to know what animals would be around.  The spring itself was too far--they'd notice if she was gone for that long--but the forest here was very similar.  
+The wind carried dust in it as she climbed over the fallen tree. Lo was heading deep into the forest surrounding the Well. She was tired of being cooped up, listening to the song only over headphones because of an angry librarian. Besides, she needed to hear the sounds of the forest as she sang, to know what animals would be around.  The spring itself was too far--they'd notice if she was gone for that long--but the forest here was very similar.  Similar animals, similar weather. It would be a good place to try it. 
 
-She walked for an hour, at least, legs striding across the forest floor, hands brushing against trunks or holding branches away from her face.  Birds sang around her (NAME THEM) and once she saw a deer before it bolted.  She didn't want to be locked out of the Well, so it probably was time to stop.  She knelt below a tree, a big willow like the old tree, but no where near as big. She sunk her fingers into the mud, pushing through toughened dried leaves, and bent her head. 
+She walked for an hour, at least, legs striding across the forest floor, hands brushing against trunks or holding branches away from her face.  Birds sang around her (NAME THEM). A deer, brown and young, watched her for a while, bolting once they made eye contact.  The air, dusty though it was, felt good after spending so much time underground, and she felt alone in a way she hadn't since moving to the Well.  She followed a small creek, cold and clear, as it ran along the forest floor, over old leaves and rocks.  She was hoping she'd find a willow, in the midst of these 
+
+The Well locked itself up at night and she didn't want to be out past curfew, so she came to a stop at the edge of a clearing.   She knelt below a tree, a big willow like the old tree, but no where near as big. She sunk her fingers into the mud, pushing through toughened dried leaves, and bent her head. 
 
 She had to admit she was lost.  She thought she had found the song, but something seemed...not quite right about it.  She wasn't going to risk it with Fi yet--it wasn't safe. 
 
