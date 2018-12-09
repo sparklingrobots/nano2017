@@ -15,25 +15,37 @@ It's like a time-travelling Snow Crash.
 
 
 ## What's the Theme?
-Sharing power (learning to take your power, learning to share power). (Unless it's liberation or just power.)
 
 Every scene, every moment, must be on-theme. 
 
-The theme has something to do with: 
+Change is inevitable. 
+
+# Can humans learn to truly be flexible enough to meet change and stay peaceful? 
+
+Lo begins as a very inflexible person, totally dedicated to her day-to-day. She doesn't allow much into her life that would disrupt it (in many ways she is a microcosm of the controlling Delvers).  
+
+When things fall apart and she learns to adapt, she finds herself uncannily good at learning, adapatation, flexibility.
+
+The bad thing (whatever the bad thing is) must be brought into the culture, must be digested by it and transformed. 
+
+
+Sharing power (learning to take your power, learning to share power). (Unless it's liberation or just power.)
+
 History and how we care for it
 
 The Great Mourning is a period of loss and letting prized things/beings/experiences slip into the past gracefully. Then understanding that things will die and we are here to help the dead decay and feed the living. 
 
 We let the GM fix a lot of things about our eocological problems.  We are still, however, a species with conflict and desire and ambition.   
 
-# The theme is death, maybe.  History & gardening.  
+The theme is death, maybe.  History & gardening.  
 
-There is also a strong musical component. I'm sure there's a novel that I'm biting this whole singing-to-the-plants thing from but I can't name it at present. 
+There is also a strong musical component. 
+
+
 
 ## What's the Genre?
 
 A visionary conspiracy thriller. I want a thriller that can happen in a world I want to live in and FOR FUCK'S SAKE I want a thriller with a feminine/female/nb protagonist and NOBODY GETS TO FUCKING SWOOP IN AND SAVE HER. 
-
 
 Books that could be templates: 
 Snow Crash
@@ -73,24 +85,10 @@ C) It involves the total destruction of good and bad delvers on a micro scale.
 
 D) Whoever is involved swears that this will be put right.
 
-E) It puts Lo in the position of having to decide waht to do.
+E) It puts Lo in the position of having to decide what to do.
 
 ### Some old notes I'm not sure what to do with 
-The bad thing (whatever the bad thing is) must be brought into the culture, must be digested by it and transformed. 
 
-Could the bad thing threaten the tree?  Be the tree? Be inside the tree? 
-
-The tree had a spore in it that came loose when Fi psychically jostled it.  It infected mostly Delvers, who were vulnerable to the signals.  Those Delvers started to get stuck, resentful, isolated, and started turning people to their side. 
-
-The song that Fi saw is indeed a containment spell that has been perverted/forgotten & rewritten by the Delvers in the area, but they don't remember any more where it came from.  So they sing it to the Well instead of the tree. 
-
-The birds in the area know something of the tree.  They know that of the two lines of humans (Delvers & non) they will merge into one better species.  They know that Lo is the one to do it becuase they recognize her from her ancestor/reincarnated self, which is why they declare her King of All Birds. 
-
-The Delvers want to broadcast their fucked up and vaguely fascist views longer distance. So they resurrect an old radio station and start pirate broadcasting.  This is where Lo breaks in at the end of the book and has to disable the device (in retrospect everything about that scene should be Su.  Su is more mechanical and will want to save Io but will not feel SO fucked up by it.)
-
-In the mean time Lo has assembled her group to sing to the tree.  The singing will actually trigger a kind of collapse of the space/time continuum, so all the Protectors will be singing at the same time (why does this one trigger and no other time does?).  And when they do that, the tree will push out the antidote to the Bad Guys.  
-
-But they don't solve it in time to save the Delvers.  And the Bad Guys have proven that this kind of secretive culture & structure is too dangerous.  So Lo knows her next phase in life is teaching the Delver skills to everyoe.  
 
 
 # OUR HERO

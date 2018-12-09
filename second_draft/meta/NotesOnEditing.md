@@ -106,7 +106,7 @@ Turns out I had bronchitis so I have been mostly focused on sleeping and caring 
 I've spent a fair amount of time today just moving things around. It feels both finicky & pretty relevant. I need to be able to dip back in more easily and the three thousand versions of the plot that are floating around really don't help. I need *one* that's canonical. I'm clearly not the writer who can hold this all in my head at once.  
 I find I have something inside me that says: Yes, this is the right way. No, that's the wrong way. It's not honestly a great weathervane at this point--it pulls me in too many directions, doesn't thread the needle quite.  But I have it. It's in there. And that's a great relief. 
 Just re-arranged my day as I'm starting to feel some novel momentum of some small amount--not time to switch gears, methinks. 
-
+Okay, got 2 hours in. I want to touch this much more frequently--daily if possible until it's done. 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

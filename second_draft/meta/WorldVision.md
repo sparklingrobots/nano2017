@@ -26,6 +26,6 @@ In lieu of a character or compelling situation, I envision a world:
 
 * Where *does* the individual fit in to all of this? 
 
-* POV: First? Third? Omniscient? Second?! !!??
+* POV: Third-person, omniscient.
 
 * I can feel the world I imagine which means I can find it. 

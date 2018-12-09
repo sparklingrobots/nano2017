@@ -102,7 +102,6 @@ Humanity has found peace--but a secret threatens to come to light that will dest
 
 Lo has to solve the puzzle before the bad guys outnumber the good. 
 
-
 One woman is recruited to save the world around her--but as she does, she discovers the world may not be worth saving at all. 
 
 Lo is the force of creativity that causes some destruction but brings about something marvelous. 
@@ -112,7 +111,6 @@ The Delvers keep harmony--until one of them is brutally murdered. Suddenly, some
 After the Great Mourning, society is stable--but a new threat forces an amateur historian to make a difficult choice. 
 
 An amateur musicologist joins forces with a plant witch to stop a threat no one else can even understand--but they risk everything in the process. 
-
 
 
 ## Tara's Kinda Rough Plot Summary to Just Figure Out If I Know What Happens In This Book Chronologically
@@ -213,3 +211,15 @@ Brown note/black language
 MAYBE: https://tvtropes.org/pmwiki/pmwiki.php/Main/ClapYourHandsIfYouBelieve
 https://owlcation.com/stem/The-Effect-of-Music-on-Plant-Growth-and-Pests
 https://tvtropes.org/pmwiki/pmwiki.php/Main/Mythpunk
+
+What is the problem? Theme?
+ responsibility
+Sharing power. 
+
+Mq can be like the old man next to me, doesn't seem to know the words please or thank you and his bubble of influence it's enormous.
+
+8-12 major sequences: how is mine divided?
+
+The radio broadcast at the beginning destroys a few delvers. And infects some others secretly so they turn.  It's a small area of effect because they're just learning. 
+
+Lo had to write the song that counteracts what they did but in so doing she Burns it the last of the delvers control abilities.
