@@ -1,16 +1,36 @@
 # OVERVIEW
 
-## Concept
+This document is intended to answer some of the questions from Steven Pressfield's _Nobody Wants to Read Your Shit_.
+
+## What's the Concept? 
 Concept ~is a world without a strong sense of heroes~.
 
 I'm still looking for my Die Hard level concept. 
 
-## Theme
+together = better
+
+It's like Cloud Atlas but for raging feminists who hate cars. 
+
+It's like a time-travelling Snow Crash. 
+
+
+## What's the Theme?
 Sharing power (learning to take your power, learning to share power). (Unless it's liberation or just power.)
 
 Every scene, every moment, must be on-theme. 
 
-## Genre 
+The theme has something to do with: 
+History and how we care for it
+
+The Great Mourning is a period of loss and letting prized things/beings/experiences slip into the past gracefully. Then understanding that things will die and we are here to help the dead decay and feed the living. 
+
+We let the GM fix a lot of things about our eocological problems.  We are still, however, a species with conflict and desire and ambition.   
+
+# The theme is death, maybe.  History & gardening.  
+
+There is also a strong musical component. I'm sure there's a novel that I'm biting this whole singing-to-the-plants thing from but I can't name it at present. 
+
+## What's the Genre?
 Might be time to read: Shawn Coyne Story Grid, because lord I have no idea what genres are. 
 
 Current theory is like: a mystery? It's not a murder mystery, it's more...thriller-y, maybe? 
@@ -23,6 +43,13 @@ Queer romance?
 
 https://tvtropes.org/pmwiki/pmwiki.php/Main/ConspiracyThriller
 https://tvtropes.org/pmwiki/pmwiki.php/SoYouWantTo/WriteAConspiracyTheory
+
+
+I'm thinking like... a visionary mystery novel.  An informational mystery novel. 
+
+Unsurprisingly Snow Crash continue to point the way but I can't put my finger on how.  
+
+IT'S A THRILLER!! DUH.  This is always what I write (that's a lie) but it's totally a thriller. I love reading thrillers but they're all full of ridiculous men and women treated like trash.  I want a thriller that can happen in a world I want to live in and FOR FUCK'S SAKE I want a thriller with a feminine/female/nb protagonist, this shit shouldn't be that hard and NOBODY GETS TO FUCKING SWOOP IN AND SAVE HER. 
 
 ## The Inciting Incident
 
@@ -250,46 +277,10 @@ Okay so maybe the idea is that humanity has come together.
 
 Then a threat from somewhere else appears--could be an alien, could be a weird apparition from the past (I THINK WE KNOW WHICH ONE IS A WINNER) but it does NOT like what is going on and wants to push us into a different habit.  Some people fall prey to it, others resist strongly. 
 
-OKAY I AM LIKING THIS. 
-
-
-
-
-## WHAT'S THE CONCEPT
-
-together = better
-
-It's like Cloud Atlas but for raging feminists who hate cars. 
-
-It's like a time travelling Snow Crash. 
-
-TODO: Develop the concept. 
 
 ## HOW DO THE CHARACTERS REPRESENT THAT CONCEPT?
 
 TODO: How do the characters represent that concept? 
-
-## WHAT'S THE GENRE
-
-I'm thinking like... a visionary mystery novel.  An informational mystery novel. 
-
-Unsurprisingly Snow Crash continue to point the way but I can't put my finger on how.  
-
-IT'S A THRILLER!! DUH.  This is always what I write (that's a lie) but it's totally a thriller. I love reading thrillers but they're all full of ridiculous men and women treated like trash.  I want a thriller that can happen in a world I want to live in and FOR FUCK'S SAKE I want a thriller with a feminine/female/nb protagonist, this shit shouldn't be that hard and NOBODY GETS TO FUCKING SWOOP IN AND SAVE HER. 
-
-## WHAT'S THE THEME
-
-The theme has something to do with: 
-
-History and how we care for it
-
-The Great Mourning is a period of loss and letting prized things/beings/experiences slip into the past gracefully. Then understanding that things will die and we are here to help the dead decay and feed the living. 
-
-We let the GM fix a lot of things about our eocological problems.  We are still, however, a species with conflict and desire and ambition.   
-
-# The theme is death, maybe.  History & gardening.  
-
-There is also a strong musical component because like obviously. I'm sure there's a novel that I'm biting this whole singing-to-the-plants thing from but I can't name it at present. 
 
 ## WHAT IS THE SETTING 
 
