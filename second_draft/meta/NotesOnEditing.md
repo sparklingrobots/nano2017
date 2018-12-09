@@ -103,6 +103,9 @@ Today I spent only 12 minutes, but I needed to get oriented before my big sessio
 
 ## 2018.12.09
 Turns out I had bronchitis so I have been mostly focused on sleeping and caring for my body. Hard to want to sit and write with a splitting sinus headache and violent cough. I'm still feeling shaky and frankly very tired. I also am scared of the novel now, having been away so long, and don't really want to jump in.  But today is a writing retreat day and dammit I'm gonna get into the swing of things. I think the daily engagement during early November was really crucial to keeping up momentum--even if I can only get like 15 minutes in I think touching the material every day would be a big help. Anyway, enough putting off the inevitable, time to dive into a scene. 
+I've spent a fair amount of time today just moving things around. It feels both finicky & pretty relevant. I need to be able to dip back in more easily and the three thousand versions of the plot that are floating around really don't help. I need *one* that's canonical. I'm clearly not the writer who can hold this all in my head at once.  
+I find I have something inside me that says: Yes, this is the right way. No, that's the wrong way. It's not honestly a great weathervane at this point--it pulls me in too many directions, doesn't thread the needle quite.  But I have it. It's in there. And that's a great relief. 
+Just re-arranged my day as I'm starting to feel some novel momentum of some small amount--not time to switch gears, methinks. 
 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters

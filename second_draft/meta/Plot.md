@@ -80,16 +80,17 @@ They follow!  Perhaps they take refuge in the old hotel, or perhaps they simply 
 
 After escaping, Lo and co. finally unleash the song, fighting off the bads.  Not only is Lo changed, but the whole world is undone--and time for a new beginning.
 
+# SNOWFLAKE METHOD
 
 ## ONE SENTENCE VERSION:
 
-#todo: Take an hour and write a one-sentence summary of your novel. Something like this: “A rogue physicist travels back in time to kill the apostle Paul.” (This is the summary for my first novel, Transgression.) The sentence will serve you forever as a ten-second selling tool. This is the big picture, the analog of that big starting triangle in the snowflake picture. (https://www.advancedfictionwriting.com/articles/snowflake-method/)
+Todo: Take an hour and write a one-sentence summary of your novel. Something like this: “A rogue physicist travels back in time to kill the apostle Paul.” (This is the summary for my first novel, Transgression.) The sentence will serve you forever as a ten-second selling tool. This is the big picture, the analog of that big starting triangle in the snowflake picture. (https://www.advancedfictionwriting.com/articles/snowflake-method/)
 
-In a world that has healed from the modern apocalypse, seeds from the past threaten a stagnant society. 
+# In a world where sound is everything, an amateur musician discovers a secret that threatens the world she loves, and finds herself forced to choose stability or risk change.
 
-Long after society collapsed, the Delvers keep order--until one person saves and destroys the world in a moment. (20)
+# As the anniversary of the Great Mourning approaches, everything is chaos. Dark forces have taken a few Delver towns and now the Delvers are employing the most dangerous weapon they have (Lo) in a desperate gamble to stave off the darkness.  But Lo doesn't get there in time so by the time the threat is stopped, most of the Delvers are dead. Lo and Fi have to bring back society in their own image. 
 
-A bicycling historian saves the world from an inflexible religious order and a historical evil all at once. (17)
+A lonely musician saves the world from an inflexible religious order and a historical evil all at once. (17)
 
 A rejected healer turned historian discovers the secret that will save the world from an ancient evil--but will she be able to stop the unraveling of the world she loves? 
 
@@ -101,15 +102,12 @@ Humanity has found peace--but a secret threatens to come to light that will dest
 
 Lo has to solve the puzzle before the bad guys outnumber the good. 
 
-In a world where sound is everything, an amateur historian finds herself at the crux of society--choosing who will win and who will lose. 
 
-After Fiona abandons the religious cult that raised her, she discovers a secret that threatens the very existence of the cult--will she choose them or will she choose herself?
+One woman is recruited to save the world around her--but as she does, she discovers the world may not be worth saving at all. 
 
-As the anniversary of the Great Mourning approaches, everything is chaos. Dark forces have taken a few Delver towns and now the Delvers are employing the most dangerous weapon they have (Lo) in a desperate gamble to stave off the darkness.  But Lo doesn't get there in time so by the time the threat is stopped, most of the Delvers are dead. Lo and Fi have to bring back society in their own image. 
+Lo is the force of creativity that causes some destruction but brings about something marvelous. 
 
-I like this summary  -- Lo is the force of creativity that causes some destruction but brings about something marvelous. 
-
-The Delvers keep harmony--until one of them is brutally murdered. Suddenly, someone they rejected is their only hope for maintaining peace and control--and she's not sure she's on their side. 
+The Delvers keep harmony--until one of them is brutally murdered. Suddenly, someone they once rejected is their only hope for maintaining peace and control--and she's not sure she's on their side. 
 
 After the Great Mourning, society is stable--but a new threat forces an amateur historian to make a difficult choice. 
 
@@ -182,7 +180,6 @@ How do the Delvers get destroyed at the end? Their tactics are shown to be vulne
 Things I love about the original version: 
 Humans are very responsible with their emotions, and have huge toolboxes for letting go of bad things and managing their emotional responses. 
 It's a society that values close relationships, that doens't define gender, that has a much lower human population than our current one. 
-
 
 Could the bad thing threaten the tree?  Be the tree? Be inside the tree? 
 
