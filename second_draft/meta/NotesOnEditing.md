@@ -101,6 +101,9 @@ Okay, well, I haven't been here in 8 days. I've thought about the book a fair am
 I'm really writing this as a warm up to actually getting to work. Plan is to do 15 hours in December. A hair less than November but it feels sustainable. 
 Today I spent only 12 minutes, but I needed to get oriented before my big session tomorrow. And I feel I've done it! The answer is: Open files until one of them tells you how to work on it. (I also looked on github to see what I haven't touched in a while. Very handy.)
 
+## 2018.12.09
+Turns out I had bronchitis so I have been mostly focused on sleeping and caring for my body. Hard to want to sit and write with a splitting sinus headache and violent cough. I'm still feeling shaky and frankly very tired. I also am scared of the novel now, having been away so long, and don't really want to jump in.  But today is a writing retreat day and dammit I'm gonna get into the swing of things. I think the daily engagement during early November was really crucial to keeping up momentum--even if I can only get like 15 minutes in I think touching the material every day would be a big help. Anyway, enough putting off the inevitable, time to dive into a scene. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

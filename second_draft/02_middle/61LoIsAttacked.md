@@ -1,6 +1,6 @@
 SUMMARY: Lo is attacked while singing at the tree.
 
-The wind carried dust in it as she climbed over the fallen tree, heading deep into the forest surrounding the Well. She was tired of being cooped up, listening only over headphones because of an angry librarian.  She wanted to hear the sounds of the forest as she sang, to know what animals would be around.  The spring was too far--they'd notice she left--but the forest here was very similar.  
+The wind carried dust in it as she climbed over the fallen tree, heading deep into the forest surrounding the Well. She was tired of being cooped up, listening to the song only over headphones because of an angry librarian. Besides, she needed to hear the sounds of the forest as she sang, to know what animals would be around.  The spring itself was too far--they'd notice if she was gone for that long--but the forest here was very similar.  
 
 She walked for an hour, at least, legs striding across the forest floor, hands brushing against trunks or holding branches away from her face.  Birds sang around her (NAME THEM) and once she saw a deer before it bolted.  She didn't want to be locked out of the Well, so it probably was time to stop.  She knelt below a tree, a big willow like the old tree, but no where near as big. She sunk her fingers into the mud, pushing through toughened dried leaves, and bent her head. 
 
