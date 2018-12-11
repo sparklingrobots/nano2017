@@ -111,6 +111,11 @@ Okay, got 2 hours in. I want to touch this much more frequently--daily if possib
 ## 2018.12.10
 Writing at the end of a long day, but it feels good to have my hands on it. Lots of interruptions from family members just wanting to catch up, but I felt okay about it for the most part. Tomorrow morning it's time to get up early and do so much!! What I will do I don't know, but DO IT I SHALL.
 
+## 2018.12.11
+Reading Witch Elm last night and feeling gobsmacked by dialogue. Also by the first person. So today I will try both. 
+Another thing I'd like to try is establishing the Delvers as good earlier--Paul's read of them was sinister only so I need to anchor them early on as good. 
+I still avoided any dialogue at all! But an opening scene is developing. I think I like it if it's not too ham-handed.  God, this is going to take the rest of my life to finish. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

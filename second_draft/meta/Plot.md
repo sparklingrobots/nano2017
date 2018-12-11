@@ -34,7 +34,7 @@
 #### ACT ONE
 1. hero starts in ordinary world
 
-Lo and her friends are in the forest preparing for the year's big harvest. All the Delvers are here, it's a big chaotic time. The inciting incident is witnessed by all but only understood by fi and Lo. (murder? harvest spoiled? leader killed or corrupted? climax embedded. it has to happen at the spring. )
+Lo and her friends are in the forest preparing for the year's big harvest. All the Delvers are here, it's a big chaotic time. The inciting incident is witnessed by all but only understood by fi and Lo.  One Delver is infected by the tree sap that has come out from the infected part of the tree--and turns to murder the other Delver.  The murderer escapes and runs to the next town that doesn't have Delvers--where the enemies of the Delvers take them under their wing. (Later, Un who is already kind of evil comes to the tree and also gets infected. And the OG Bad Delver figures it out and starts using the poison intentionally. )
 
 2. hero receives call to adventure
 

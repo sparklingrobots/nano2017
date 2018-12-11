@@ -13,3 +13,8 @@ Dinner would be soon, after the Delvers finished their rituals under the tree.  
 Tomorrow they would harvest the bubbleweed that grew in the shadow of the trees--the harvest that only came every seven years or so. The abundance would last them the next seven years, though--dried bubbleweed used in teas and tinctures, though most of it went to the Delvers for their work. (Do I need to just always write more than I do? Is there anything to this scene other than setting the scene? Should there be at least a minor desire to carry us forward? Is it too much to be like LO RESENTS THIS)
 
 [Might be a good idea to give Lo something to be excited about that will be wrecked by the murder.]
+
+
+---
+
+It's not my fault we brought so much corn, and here I am anyway, pulling silks off for the better part of two hours. I swear I've never seen so much corn, but I guess this is what you gotta do when you're having a town-size potluck.  Su 

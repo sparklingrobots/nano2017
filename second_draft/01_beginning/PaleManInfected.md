@@ -5,7 +5,6 @@ SUMMARY: The pale man becomes infected.
 Many many miles away a pale blond man sat at a table, reading a book on the thick slab of wood that formed the table's surface.  It was late, not sure what time.  He had a cup of coffee near him.  He had a notebook open next to the book, taking notes on what he was reading.  It was a book he found in the back of the library and it seemed no one had read it in a very long time judging from the dust and the nearly immaculate but very brittle binding. 
 
 It was a day like any Tuesday. He lived alone; he ate what he wanted when he wanted to.  He didn't have a lot of friends and his family was long gone.  He read most nights until 2 a.m. or so, feeling the coffee fill his stomach and warm him up.  
-
 There was a flash in the distance bright enough to cast a shadow from his coffee cup for the two seconds it was lit--he looked up and could see a very large beacon of light off in the distance.  He could see it out the window of his third-floor apartment.  He stood up and walked over to the balcony, wondering if he'd see it again. 
 
 For the better part of ten minutes he waited but nothing more happened.  The building he lived in was largely abandoned--he liked the quiet but now he wished he had a neighbor to confirm with. 
