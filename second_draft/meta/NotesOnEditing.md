@@ -107,6 +107,10 @@ I've spent a fair amount of time today just moving things around. It feels both 
 I find I have something inside me that says: Yes, this is the right way. No, that's the wrong way. It's not honestly a great weathervane at this point--it pulls me in too many directions, doesn't thread the needle quite.  But I have it. It's in there. And that's a great relief. 
 Just re-arranged my day as I'm starting to feel some novel momentum of some small amount--not time to switch gears, methinks. 
 Okay, got 2 hours in. I want to touch this much more frequently--daily if possible until it's done. 
+
+## 2018.12.10
+Writing at the end of a long day, but it feels good to have my hands on it. Lots of interruptions from family members just wanting to catch up, but I felt okay about it for the most part. Tomorrow morning it's time to get up early and do so much!! What I will do I don't know, but DO IT I SHALL.
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

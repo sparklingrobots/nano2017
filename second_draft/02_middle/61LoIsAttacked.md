@@ -4,9 +4,9 @@ The wind carried dust in it as she climbed over the fallen tree. Lo was heading 
 
 She walked for an hour, at least, legs striding across the forest floor, hands brushing against trunks or holding branches away from her face.  Birds sang around her (NAME THEM). A deer, brown and young, watched her for a while, bolting once they made eye contact.  The air, dusty though it was, felt good after spending so much time underground, and she felt alone in a way she hadn't since moving to the Well.  She followed a small creek, cold and clear, as it ran along the forest floor, over old leaves and rocks.  She was hoping she'd find a willow, in the midst of these 
 
-The Well locked itself up at night and she didn't want to be out past curfew, so she came to a stop at the edge of a clearing.   She knelt below a tree, a big willow like the old tree, but no where near as big. She sunk her fingers into the mud, pushing through toughened dried leaves, and bent her head. 
+The Well locked itself up at night and she didn't want to be out past curfew, so she came to a stop at the edge of a clearing.   She knelt below a tree, a big willow like the old tree, but nowhere near as big. She sunk her fingers into the mud, pushing through toughened dried leaves, and bent her head. 
 
-She had to admit she was lost.  She thought she had found the song, but something seemed...not quite right about it.  She wasn't going to risk it with Fi yet--it wasn't safe. 
+She had to admit she was lost.  Not literally, not here in the forest, but lost on a deeper level. Lost in the mystery. She thought she had found the song, but something seemed...not quite right about it.  She wasn't going to risk it with Fi yet--it wasn't safe. 
 
 Quietly, the sound rising up from her chest and into her throat, a warm and low sound, she started to sing what she did know: 
 
@@ -15,9 +15,13 @@ We heal together
 Together we gather
 We love together
 
-She imagined the other parts, overlapping--you could hardly make out any word but a staggered chorus of the word "Together". 
+She imagined the other parts, overlapping--you could hardly make out any word but a staggered chorus of the word "Together". In her mind it was beautiful, unlike any song she had heard before. Heart beating fast, she raised her voice louder. She listened closely to the song of her voice as it moved through the trees, felt it colliding with the life around her, felt it..changing somehow. Both the song and the life itself.  
 
-And cut short. Her ear had been filled with a piercing pain when she reached the last line--she couldn't tell if it was a bad noise or something else, but her ear was hurting.  
+She always knew that the songs they sing together had a physical impact on them--but she also thought that was perhaps a human-only experience. That human intelligence, human understanding of the words, cultural baggage--all of that was what gave the Delving songs their power.  But here, all alone, she could feel the power of her song as it grew.  She could swear the forest was...brighter. More alive.
+
+A few starlings watched her, or it looked like it to her--like they were curious, almost. An intelligence shined out of them--they opened their mouths simultaneously...were they going to join her? The idea shocked her but she kept singing. The feeling of power she felt was immense, intoxicating--she felt like she could see the cells in the ferns at her feet pulsating, she could see the heart beat of the birds above her. 
+
+The song grew louder and suddenly cut short. She bent in half, grabbing at her ear--what the fuck had that been? The starlings flew away as she gasped for breath. Her ear had been filled with a piercing pain when she reached the last line. 
 
 She waited, rocking back and forth on her knees with a hand over her ear. She decided to try again: 
 
