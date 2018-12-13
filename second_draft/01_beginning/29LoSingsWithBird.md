@@ -26,7 +26,13 @@ Or maybe this bird song had always been important. Maybe the original singers ha
 
 The bird looked bored as she stared at it.  It cocked its head to one side and hopped closer. It was a beautiful bird--very small, small enough it could stand on her hand if it wanted to.  Brown with blue feathers on its head and the edges of its wings. It sang the line again. 
 
-This time she sang the next line back at it.  The bird hopped a few times, excited, or as near to excited as she could tell from a bird.  She sang the line the bird sang and it joined her for both the lines.  She felt her mouth open in wonder.  She started the third line, the one she wasn't sure about, and the bird sang with her, though they diverged--and then the bird flew away.  She felt disappointment wash over her and then she realized someone was walking down the path towards the market, shoes slapping the red brick path.  
+This time she sang the next line back at it.  The bird hopped a few times, excited, or as near to excited as she could tell from a bird.  She sang the line the bird sang and it joined her for both the lines.  She felt her mouth open in wonder.  She started the third line, the one she wasn't sure about, and the bird sang with her. 
+
+The bird looked like it was trying to explain something to her, something important.  And she knew, somehow, that she had to go to the Well. (Maybe she has a vision? Maybe?)
+
+
+
+ though they diverged--and then the bird flew away.  She felt disappointment wash over her and then she realized someone was walking down the path towards the market, shoes slapping the red brick path.  
 	
 Well, it was a clue, in any case. 
 

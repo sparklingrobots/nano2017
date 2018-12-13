@@ -2,7 +2,7 @@
 
 ---
 
-Lo rose early--it wasn't like her, but she woke up to the call of a bird, plaintive and loud. Su remained still, breathing undisturbed by the shriek.  It was almost like no one else had heard it.  She dressed quietly and headed out into the forest looking for kindling and fire material. A pine tree loomed ahead, enormous--maybe as old as the sacred willow. Well, nearly as old in any case. The pine cones would start the breakfast fire quickly so they wouldn't be late for the morning ceremoney. 
+A cry broke the stillness of the morning, long and plaintive, rising from a bird somewhere off in the forest. It woke Lo up. Su remained still, breathing undisturbed by the shriek.  It was almost like no one else had heard it.  She dressed quietly and headed out into the forest looking for kindling and fire material. A pine tree loomed ahead, enormous--maybe as old as the sacred willow. Well, nearly as old in any case. The pine cones would start the breakfast fire quickly so they wouldn't be late for the morning ceremoney. 
 
 At the foot of the pine, she spied a pile of pinecones and squatted to gather them, pine needles coming along for the ride, and turned to walk back through the forest.  Cool, almost cold, night breezes had dispersed the strong smell of wood smoke, and the smell and shimmer of dew in the pre-dawn light gave her the shivers somehow.  
 
