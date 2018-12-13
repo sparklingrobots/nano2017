@@ -116,6 +116,9 @@ Reading Witch Elm last night and feeling gobsmacked by dialogue. Also by the fir
 Another thing I'd like to try is establishing the Delvers as good earlier--Paul's read of them was sinister only so I need to anchor them early on as good. 
 I still avoided any dialogue at all! But an opening scene is developing. I think I like it if it's not too ham-handed.  God, this is going to take the rest of my life to finish. 
 
+## 2018.12.12
+All day I've been feeling excited about getting to work tonight, and while my thoughts aren't deeply in the novel, the fact that they're there at all--and that they're positive!-- feels like a big win and confirmation of my daily-touches theory of noveling. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
