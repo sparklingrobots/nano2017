@@ -118,6 +118,8 @@ I still avoided any dialogue at all! But an opening scene is developing. I think
 
 ## 2018.12.12
 All day I've been feeling excited about getting to work tonight, and while my thoughts aren't deeply in the novel, the fact that they're there at all--and that they're positive!-- feels like a big win and confirmation of my daily-touches theory of noveling. 
+Writing some early novel scenes because I think it would be good to have a little bit of a slower pace at the beginning, something to establish our characters before their lives get wrecked by everything. 
+Tomorrow I want to start with scene 29 and write how Lo decides that she WILL go to the Well (the scene where she sings with a bird).
 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters

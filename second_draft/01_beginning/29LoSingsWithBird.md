@@ -29,3 +29,6 @@ The bird looked bored as she stared at it.  It cocked its head to one side and h
 This time she sang the next line back at it.  The bird hopped a few times, excited, or as near to excited as she could tell from a bird.  She sang the line the bird sang and it joined her for both the lines.  She felt her mouth open in wonder.  She started the third line, the one she wasn't sure about, and the bird sang with her, though they diverged--and then the bird flew away.  She felt disappointment wash over her and then she realized someone was walking down the path towards the market, shoes slapping the red brick path.  
 	
 Well, it was a clue, in any case. 
+
+
+THIS BIRD EXPERIENCE IS THE THING THAT MAKES HER ACCEPT THE CALL TO GO TO THE WELL
