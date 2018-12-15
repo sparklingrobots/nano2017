@@ -126,6 +126,9 @@ Tomorrow I want to start with scene 29 and write how Lo decides that she WILL go
 ## 2018.12.13
 Got a late start due to wanting to bond with family who are off for the day.  And then got interrupted with a Christmas question. That is the nature of a writing life, maybe. But I don't feel the anger as strongly as some days when this happens. I'll get there. 
 
+## 2018.12.14
+Shoving in a little scrap of time, not sure where to focus and not getting much done. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

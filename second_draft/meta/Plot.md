@@ -14,15 +14,15 @@
 
 5. Su gets involved.
 
-6. Lo goes to the tree alone and is attacked
+6. 
 
 7.
 
-8.
+8. Lo goes to the tree alone and is attacked
 
-9.
+9. 
 
-10. 
+10. Lo escapes the Well & runs to the spring-- the Well is destroyed by her song.
 
 11. Inside the abandoned air hangar -- dismantling generator
 
@@ -38,7 +38,7 @@ Lo and her friends are in the forest preparing for the year's big harvest. All t
 
 2. hero receives call to adventure
 
-Fi comes to Lo with a summoning from the Delvers--Fi shares her fear and bolsters Lo's courage. 
+SOMEONE comes to Lo with a summoning from the Delvers, Lo ignores it and continues her normal life. Whatever that is.
 
 3. hero rejects call
 
@@ -48,7 +48,7 @@ Io starts falling apart and things get bad in Lo's personal life.
 
 4. hero meets mentor. mentor gives hero courage to continue
 
-Lo sings with the bird and somehow knows she has to go.
+Fi takes matters into her own hands and visits Lo. She shares her fear and bolsters Lo's courage.  Lo sings with the bird and somehow knows she has to go.
 
 #### ACT TWO -- Act Two belongs to the VILLAIN. Make sure the villain is front and center all the dang time. 
 

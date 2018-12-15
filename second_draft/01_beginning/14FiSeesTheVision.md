@@ -8,7 +8,7 @@ _The history of the tree, the way the strangeness of the tree in its context obs
 
 She felt stupid for not noticing before, the obvious strangeness of this tree.  But she also intuited that the tree had been strange to her for years, and strange to others before. 
 
-She had always found it strange to see this massive ancient creature in the middle of the city, and she knew that it had likely survived even the Great Mourning, the Great Mourning that had taken out entire species, this tree had lived.  
+She had always found it strange to see this massive ancient creature in the middle of the younger forest, and she knew that it had likely survived even the Great Mourning. Through the Great Mourning that had taken out entire species, this tree had lived.  
 
 She thought back to the men who had planted it here--the old Spanish missionaries.  It hurt her a bit to think of it, but she took a breath and accepted that the painful thing had happened and could not un-happen.  It was a fundamental teaching: things cannot un-happen. 
 

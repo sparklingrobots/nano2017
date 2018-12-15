@@ -1,6 +1,8 @@
 SUMMARY: Fi delivers the mission to Lo.
 
-Io's voice seemed pitched just so for her, almost like a dog whistle. It wormed into her mind and distracted her from conversation.  It wasn't malicious--just something about that particular vibration. 
+(I think this scene needs to start with Lo in a kind of disheveled/frantic state.)
+
+
 
 There was a knock at the door. 
 

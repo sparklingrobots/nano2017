@@ -28,11 +28,13 @@ The bird looked bored as she stared at it.  It cocked its head to one side and h
 
 This time she sang the next line back at it.  The bird hopped a few times, excited, or as near to excited as she could tell from a bird.  She sang the line the bird sang and it joined her for both the lines.  She felt her mouth open in wonder.  She started the third line, the one she wasn't sure about, and the bird sang with her. 
 
-The bird looked like it was trying to explain something to her, something important.  And she knew, somehow, that she had to go to the Well. (Maybe she has a vision? Maybe?)
+The bird looked like it was trying to explain something to her, something important. The bird sang a song, a quick burst, and Lo was overcome with a vision: baby birds starving en masse, entire flocks of birds dying as they flew into enormous glass buildings, strange birds she had never seen except in books.  The song stopped and the real world resolved again in front of her.  
+
+The bird looked at her, almost archly--would Lo get the message? Lo nodded. She didn't understand the vision she'd just seen, but she knew, somehow, that she had to go to the Well. If she didn't go, she worried the vision the bird shared would come to pass. 
 
 
 
- though they diverged--and then the bird flew away.  She felt disappointment wash over her and then she realized someone was walking down the path towards the market, shoes slapping the red brick path.  
+though they diverged--and then the bird flew away.  She felt disappointment wash over her and then she realized someone was walking down the path towards the market, shoes slapping the red brick path.  
 	
 Well, it was a clue, in any case. 
 
