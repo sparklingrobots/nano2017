@@ -1,5 +1,7 @@
 SUMMARY: Delver leaders debate about bringing Lo into the mission. Lo's history is unveiled a bit. 
 
+
+
 Un, Zo and Mq sat in a small room of the Well together.  Fi was there, too, off to the side.  Un would have to sort out what to do with Fi and the other damaged ones--they made the Delvers uncomfortable and that kind of tension would not be good for the community as a whole.  But they couldn't simply eject Fi, either.  Bad for morale. 
 
 Zo cleared their throat, "You called us here to talk about the situation?"

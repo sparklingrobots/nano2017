@@ -29,7 +29,27 @@
 12. Final sequence at the tree -- getting there, executing, result
 
 
+Principles of Delver Society: 
+ * Emotional control is critical. 
+ * Communal living. 
+ * Sustainability and stability.  
+ * Human skill over technology.  
+ * Think of the group, not the individual.  
+ * Violence is forbidden.  
+ * They use the bark of the tree as an enhancer for their powers. 
+ * Use the life patterns of bees. 
+ * Small is all. 
+ * Decentralized. 
+
 ### Hero's Journey
+
+#### ACT ZERO
+
+A fungus is released from the tree during this seven-year harvest. It takes root most deeply in the Delvers, who reserve a special formula for their use.  This fungus is a hallucinogen that is spreading fear and paranoia. There have been some confusing and scary reports from a few border towns and they're convinced they're saving every one.  But really there is a hallucinogen that the tree has unleashed that is causing some of them to lose it--a fungus growing in them.  
+
+The bad Delvers are trying to unleash some of the weaponry elements of the society--they want to take a nearby town that has some handy resources.  They are building a broadcast system to activate the people in the communities. They're doing this because there have been some confusing and scary reports from a few border towns and they're convinced they're saving every one.  But really there is a hallucinogen that the tree has unleashed that is causing some of them to lose it--a fungus growing in them.  
+
+
 
 #### ACT ONE
 1. hero starts in ordinary world
@@ -38,7 +58,8 @@ Lo and her friends are in the forest preparing for the year's big harvest. All t
 
 2. hero receives call to adventure
 
-SOMEONE comes to Lo with a summoning from the Delvers, Lo ignores it and continues her normal life. Whatever that is.
+SOMEONE comes to Lo with a summoning from the Delvers, Lo ignores it and continues her normal life. Whatever that is. 
+The Delvers decide she will need to help them because she is actually more powerful than they are.  
 
 3. hero rejects call
 
@@ -50,11 +71,13 @@ Io starts falling apart and things get bad in Lo's personal life.
 
 Fi takes matters into her own hands and visits Lo. She shares her fear and bolsters Lo's courage.  Lo sings with the bird and somehow knows she has to go.
 
+
+
 #### ACT TWO -- Act Two belongs to the VILLAIN. Make sure the villain is front and center all the dang time. 
 
 5. hero crosses threshold, enter special world.
 
-Fi and Lo travel to the Well
+Fi and Lo travel to the Well. They give her the strong version of the drug they take; she has a bad trip.  Half the Delvers think this is a terrible idea and are attempting to sabotage her at every turn.  
 
 6. hero encounters enemies and allies, undergoes ordeal that will serve as their initiation
 
@@ -64,6 +87,12 @@ Lo meets lots of Delvers, and begins to understand more about the world of the D
 2) Council of Delvers, initiating her into their ranks so she can do her work. 
 
 (OMG MAYBE LO DOES ALL THE RESEARCH IN THE WELL AND NOT AT HER OWN HOME, HENCE SHE GETS A LOT OF TIME TO SPEND WITH THEM AND LEARN ABOUT THE BADNESS) (POSSIBLY ALSO WHY SU HAS TO GO ON HER BIKE RIDE?)
+
+The Bad Delvers actually enlist her to fight the war for them--to write the song that will turn everyone into a killing machine.  But as she works she begins to realize that things are not as they seem. Finelle uncovers the connection with the tree, and they begin to piece together that the Delvers are trying to start a war using Lo as the flashpoint.  She writes two songs--one battle song, and one that is a curative song, that will save the others.   She keeps it secret. 
+
+The song that Lo writes is a way of killing the fungus--it will kill some of the most badly infected Delvers and disable many of them for a while.  Finelle is useful in this because of her knowledge of botany. 
+
+
 
 7. hero confronts villain, acquires treasure
 
@@ -79,9 +108,14 @@ She runs away from the Well. Fi and a few other Delvers flee with her. They need
 
 They follow!  Perhaps they take refuge in the old hotel, or perhaps they simply end up there via hijinks.
 
+She has to go to their broadcast center and sing the curative song before they can release their weaponry. 
+
+
 10. hero returns home with treasure, reintegrates into ordinary world, but now as changed person, thanks to their ordeal and experiences on the journey
 
 After escaping, Lo and co. finally unleash the song, fighting off the bads.  Not only is Lo changed, but the whole world is undone--and time for a new beginning.
+
+When they finally get to the spring, with the tree, to try to save it--it has exploded into many pieces, many green branches on the ground.  Lo is distraught, but Finelle knows that the willow will recover. It can be planted anywhere and it will come back.  
 
 # SNOWFLAKE METHOD
 
@@ -91,7 +125,7 @@ Todo: Take an hour and write a one-sentence summary of your novel. Something lik
 
 # In a world where sound is everything, an amateur musician discovers a secret that threatens the world she loves, and finds herself forced to choose stability or risk change.
 
-# As the anniversary of the Great Mourning approaches, everything is chaos. Dark forces have taken a few Delver towns and now the Delvers are employing the most dangerous weapon they have (Lo) in a desperate gamble to stave off the darkness.  But Lo doesn't get there in time so by the time the threat is stopped, most of the Delvers are dead. Lo and Fi have to bring back society in their own image. 
+# As the seven year harvest approaches, everything is chaos. Dark forces have taken a few Delver towns and now the Delvers are employing the most dangerous weapon they have (Lo) in a desperate gamble to stave off the darkness.  But Lo doesn't get there in time so by the time the threat is stopped, most of the Delvers are dead. Lo and Fi have to bring back society in their own image. 
 
 A lonely musician saves the world from an inflexible religious order and a historical evil all at once. (17)
 

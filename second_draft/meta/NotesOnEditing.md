@@ -129,6 +129,14 @@ Got a late start due to wanting to bond with family who are off for the day.  An
 ## 2018.12.14
 Shoving in a little scrap of time, not sure where to focus and not getting much done. 
 
+## 2018.12.15
+Remembering the point of these notes--to track *how* I approach this. Right now I'm just picking random scenes until I find one I can sink my teeth into. It's slow and not super structured. But it's how I'm doing it.
+Today I spent some time brainstorming and trying to think about how this society actually functions economically and politically and stuff. It's a lot and really hard to sort out. I wish I were more the leap-before-you-look type, but you know, I yam what I yam.  I think I'm starting to feel the story really clicking in some places and wanting to hook the adjacent puzzle pieces together--to work from the front to the back--and since I want extra stuff at the beginning, solving those problems feels like something of a blocker.  A lot of the questions I have left to me feel HARD (like what's the actual threat) and just *have* to be resolved, by hook or by crook. I think. At least that's how it feels. So I'm just throwing myself against them. At some point I wonder if I need to step away so I can come back and read it with fresh eyes, but I don't feel ready for that. It feels like I'm still so early in the process and there *must* still be work I can do to get this closer to done before that. 
+
+## 2018.12.16
+Today I've been putting off coming to the book. Maybe time to find a new spot to work on.  I thought I started a scene somewhere about the battles, the lost towns, but I can't find it now....I'll try again.  
+Okay, still mostly just worked on the plot. Just trying to hammer it into submission.  Tomorrow I'd like to work some more on the plot, I think. I want to figure out what the fungus is, how we can cure the tree itself since the song cures the humans. I think this is the wonky and technical part? Or maybe I'm just avoiding writing but I keep hitting questions I dont' know the answer to. And struggling to figure out if I can keep the book I originally meant to write or if it's something else altogether. And if that's okay.
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
