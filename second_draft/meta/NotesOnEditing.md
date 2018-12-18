@@ -140,6 +140,11 @@ Okay, still mostly just worked on the plot. Just trying to hammer it into submis
 ## 2018.12.17
 I figured out how I want the Delvers to initially ask Lo to join them. I think that the scene does a lot for fleshing out Lo, and also for helping me discuss what the issues are (since I have to explain them to Lo). Lo DOES wear cardigans. I don't know why! What the fuck!  Soon (tomorrow?) I want to organize the segments further--into the steps of the hero's journey. 
 
+## 2018.12.18
+Okay! Today I will organize scenes further into...segments? I dunno. Steps of the hero's journey because I am leaning on that like the crutch that it is. Because crutches help you walk and I am HERE for any help I can get. 
+Okay, having done that, there are things I've learned. Just because LO's story is organized via Hero's Journey doesn't mean the whole story fits in to that rubric. There are definitely things that need to happen that don't fit the segment that I'm just sticking in there because I think that's roughly when it actually happens.  Also realizing Fi has her own journey to go on through the book that I need to work out. I love Fi. She's really my fave character.  
+All that said....we're getting there. We're about 60000 words and still have maybe another 10-15k that needs to be written. Then...rewritten. And rewritten. You know.  But that's fine. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
