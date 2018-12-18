@@ -137,6 +137,9 @@ Today I spent some time brainstorming and trying to think about how this society
 Today I've been putting off coming to the book. Maybe time to find a new spot to work on.  I thought I started a scene somewhere about the battles, the lost towns, but I can't find it now....I'll try again.  
 Okay, still mostly just worked on the plot. Just trying to hammer it into submission.  Tomorrow I'd like to work some more on the plot, I think. I want to figure out what the fungus is, how we can cure the tree itself since the song cures the humans. I think this is the wonky and technical part? Or maybe I'm just avoiding writing but I keep hitting questions I dont' know the answer to. And struggling to figure out if I can keep the book I originally meant to write or if it's something else altogether. And if that's okay.
 
+## 2018.12.17
+I figured out how I want the Delvers to initially ask Lo to join them. I think that the scene does a lot for fleshing out Lo, and also for helping me discuss what the issues are (since I have to explain them to Lo). Lo DOES wear cardigans. I don't know why! What the fuck!  Soon (tomorrow?) I want to organize the segments further--into the steps of the hero's journey. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

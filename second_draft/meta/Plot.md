@@ -2,56 +2,13 @@
 
 ## HERO'S JOURNEY
 
-### What are the 8 to 12 sequences (can be made of multiple scenes) in the book?
-
-1. Discovering the problem during annual harvest
-
-2.
-
-3.
-
-4. Lo at the Well, begins research
-
-5. Su gets involved.
-
-6. 
-
-7.
-
-8. Lo goes to the tree alone and is attacked
-
-9. 
-
-10. Lo escapes the Well & runs to the spring-- the Well is destroyed by her song.
-
-11. Inside the abandoned air hangar -- dismantling generator
-
-12. Final sequence at the tree -- getting there, executing, result
-
-
-Principles of Delver Society: 
- * Emotional control is critical. 
- * Communal living. 
- * Sustainability and stability.  
- * Human skill over technology.  
- * Think of the group, not the individual.  
- * Violence is forbidden.  
- * They use the bark of the tree as an enhancer for their powers. 
- * Use the life patterns of bees. 
- * Small is all. 
- * Decentralized. 
-
-### Hero's Journey
-
-#### ACT ZERO
+### ACT ZERO
 
 A fungus is released from the tree during this seven-year harvest. It takes root most deeply in the Delvers, who reserve a special formula for their use.  This fungus is a hallucinogen that is spreading fear and paranoia. There have been some confusing and scary reports from a few border towns and they're convinced they're saving every one.  But really there is a hallucinogen that the tree has unleashed that is causing some of them to lose it--a fungus growing in them.  
 
 The bad Delvers are trying to unleash some of the weaponry elements of the society--they want to take a nearby town that has some handy resources.  They are building a broadcast system to activate the people in the communities. They're doing this because there have been some confusing and scary reports from a few border towns and they're convinced they're saving every one.  But really there is a hallucinogen that the tree has unleashed that is causing some of them to lose it--a fungus growing in them.  
 
-
-
-#### ACT ONE
+### ACT ONE
 1. hero starts in ordinary world
 
 Lo and her friends are in the forest preparing for the year's big harvest. All the Delvers are here, it's a big chaotic time. The inciting incident is witnessed by all but only understood by fi and Lo.  One Delver is infected by the tree sap that has come out from the infected part of the tree--and turns to murder the other Delver.  The murderer escapes and runs to the next town that doesn't have Delvers--where the enemies of the Delvers take them under their wing. (Later, Un who is already kind of evil comes to the tree and also gets infected. And the OG Bad Delver figures it out and starts using the poison intentionally. )
@@ -71,9 +28,7 @@ Io starts falling apart and things get bad in Lo's personal life.
 
 Fi takes matters into her own hands and visits Lo. She shares her fear and bolsters Lo's courage.  Lo sings with the bird and somehow knows she has to go.
 
-
-
-#### ACT TWO -- Act Two belongs to the VILLAIN. Make sure the villain is front and center all the dang time. 
+### ACT TWO -- Act Two belongs to the VILLAIN. Make sure the villain is front and center all the dang time. 
 
 5. hero crosses threshold, enter special world.
 
@@ -93,12 +48,11 @@ The Bad Delvers actually enlist her to fight the war for them--to write the song
 The song that Lo writes is a way of killing the fungus--it will kill some of the most badly infected Delvers and disable many of them for a while.  Finelle is useful in this because of her knowledge of botany. 
 
 
-
 7. hero confronts villain, acquires treasure
 
 As Lo finishes her song and prepares to share it with the Delvers, the Queen comes to listen to the song. The effect on the queen is extreme, and is broadcast throughout the entire Well.  Those who have been badly infected die. she is waylaid by the Bad Delvers, who try to kill her and destroy her work. Her battle with them and eventual defeat are the biggest personal challenge for her. 
 
-#### ACT THREE
+### ACT THREE
 
 8. the road back. hero escapes special world, trying to 'get home'
 
@@ -116,6 +70,18 @@ She has to go to their broadcast center and sing the curative song before they c
 After escaping, Lo and co. finally unleash the song, fighting off the bads.  Not only is Lo changed, but the whole world is undone--and time for a new beginning.
 
 When they finally get to the spring, with the tree, to try to save it--it has exploded into many pieces, many green branches on the ground.  Lo is distraught, but Finelle knows that the willow will recover. It can be planted anywhere and it will come back.  
+
+Principles of Delver Society: 
+ * Emotional control is critical. 
+ * Communal living. 
+ * Sustainability and stability.  
+ * Human skill over technology.  
+ * Think of the group, not the individual.  
+ * Violence is forbidden.  
+ * They use the bark of the tree as an enhancer for their powers. 
+ * Use the life patterns of bees. 
+ * Small is all. 
+ * Decentralized. 
 
 # SNOWFLAKE METHOD
 
