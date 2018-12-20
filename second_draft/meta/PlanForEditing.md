@@ -26,3 +26,6 @@
 https://superuser.com/questions/353078/how-do-i-count-the-total-number-of-words-of-all-files-in-a-directory-and-its-su
 
 find . -type f -print0 | xargs -0 cat | wc -w
+
+# Word Count Guide: 
+https://manuscriptagency.com.au/word-count-by-genre-how-long-should-my-book-be/
