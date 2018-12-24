@@ -1,0 +1,1 @@
+Lo meets the queen for the first time. Falls in love and swears to herself she will defend the Delvers.

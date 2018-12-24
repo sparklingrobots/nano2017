@@ -16,7 +16,7 @@ It's like a time-travelling Snow Crash.
 
 ## What's the Theme?
 
-Every scene, every moment, must be on-theme. 
+_Every scene, every moment, must be on-theme._
 
 Change is inevitable. 
 
@@ -191,7 +191,7 @@ TODO: What is the relationship between the man with the coffee / the virus / the
 
 The tree has a fungus inside of it? How does this interact with the fact that perhaps this malicious force comes from outside of the relatively small and isolated community? 
 
-I like the idea that there is a fungus like the one that controls ants that takes these people over and needs to be removed or counteracted. I'm not totally sure how a song does this, and also it counteracts the whole idea that people are just kind of inherently weak and will make some bad decisions.  Hmm hmm hmm. This book is probably destined to be bad but I really want it to be A Book That Can Be Read. 
+I like the idea that there is a fungus like the one that controls ants that takes these people over and needs to be removed or counteracted. I'm not totally sure how a song does this, and also it counteracts the whole idea that people are just kind of inherently weak and will make some bad decisions.  
 
 Mold is an obvious overlap here.  Mold as it grows from small spores, a treacherous threat that works, I suppose in much the way that this culture works--communally, collectively, piece by small piece, transforming into something good (to the mold). 
 
@@ -225,12 +225,6 @@ This one is fascinating.  In a world like the one I envision, what is the counte
 
 ## WHAT'S THE CLIMAX
 
-How do we have a gardening related climax? It sounds so boring and slow. Why did I do this to myself. 
-
-Okay, I think it's a mold or invasive species that unlocks the baddy. 
-
-The climax goes something like this:
-
 Lo has the cure/the key.  She has the right song but they all have to sing it together.  She's trying to gather her people together and get them in the right place and right context. 
 
 She goes to her most trusted person but they've turned.  They've gone bad and they want her to go with them.  She doesn't realize it at first then realizes that something is very very wrong.  She tries the song on them but it's not enough by herself.  They sing a counter melody and she feels herself falling.  She runs away.  She knows she needs to get the others and she still wants to get her bestie.  But her bestie isn't there anymore.  
@@ -243,14 +237,9 @@ They return to the present moment, much older and more tired.
 
 Lo has lost her bestie. She writes a new song of mourning for the loss, but a new song--with a solo. With some love song references. 
 
-
-I want to write at length about what the climax is here. 
-
 Lo has found some information that not everyone can access.  This information is very important and very dangerous.  I'm not sure yet if it's dangerous to Lo and her crew or if it's dangerous to an outside entity.  
 
 Let's brainstorm about outside entities that could be harmful but are not human: 
-
-No, wrong question. 
 
 We already have these on-theme monsters: 
 
