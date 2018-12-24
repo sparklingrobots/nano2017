@@ -41,6 +41,35 @@ The theme is death, maybe.  History & gardening.
 
 There is also a strong musical component. 
 
+## POV
+
+1. Who tells the story? Through whose eyes (or from what POV) do we see the characters and the action? 
+
+Right now it's an omniscient third person. This allows me to jump around and show stuff that Lo doesn't necessarily know (e.g. we can see scenes that star Fi, or Zo.) But I continue to come back to the first person. A) I think I'm less stilted in the first person, and B) detective fiction is frequently told in the first person.  
+
+What are some options? 
+
+Third person omniscient -- just a smart voice from the void, describing the story as it goes. Shifts between Lo and Fi and others. 
+
+First person major -- from Lo's point of view
+
+First person minor -- from the point of view of another character (maybe someone who witnessed it, or just heard about it later as it has passed into legend). Fi looking at Lo as she works. One of the Delvers who has a stake in things (e.g. wants Lo to succeed?) 
+
+Multiple first-person -- from lots of points of view. 
+
+Plural first-person -- this one gives me a little frisson of excitement mixed with fear. There's something that feels *relevant* to the story that a plural first person would be telling it, but I have literally no idea how to achieve and it feels ballsey in a way I'm not sure I need to achieve.  (I just started reading Faulkner's A Rose for Emily and it's sorttttta in the "we" but not super specifically. Still it has something interesting. I could write a little framing device of "we". It could be from the future perspective, that these people who survive know all that happened before, they're here to tell the story of how they acheived what they have.  If there is a society that lives, that loves Lo and all that she did, that remembers the work she gave--how would they know the details of what happened? How would they tell it? And what is the lesson that comes from framing it this way ? "When we think of the time before, which we don't often do, there's a little touch of horror and love all mixed together, you know?"
+
+Alternatively I could write it from the perspective of a Delver faction.  "We  
+
+
+
+3) What is the tone? Wry? Elegiac? Loopy? 
+
+
+4) To whom is the story told, exactly? 
+
+
+All of these must work on-theme, which is tough because me and the theme are slightly at odds right now. I think a part of the theme is trusting yourself over authority. 
 
 
 ## What's the Genre?
