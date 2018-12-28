@@ -167,6 +167,9 @@ I'm scratching out a tiny bit of writing time even though I'm lost in some feeli
 Okay, I gave up on "we" but I started writing it from Fi's perspective. I don't know yet if that's any good. There are plenty of scenes that would be tough to write from Fi's perspective, but perhaps they'd be okay. It's sorta nice having Lo be a person whose head we don't quite get to enter. But I'm not sure Fi is correctly positioned to make everything work, either. Like, as Lo is sorting out the mysteries, Fi doesn't know about that (at least not totally).  Fi has to come to Lo's side too.  Potentially I could write things like Well, this is how Lo told me about it, sorta a specific omniscient narrator? I am...not sold. 
 The other thing is, I want to know *how* to solve this problem. Right now it feels like my only option is to write it all from that perspective to find it out. 
 
+## 2018.12.27
+Work is super slow and it's taking SO MUCH will power not to work on this while things are slow. Wah-wah. Anyway. Time to hammer out 10 mins of work. I picked a bad sentence and started teasing out an actual story from the skeleton I had sketched there. Not a bad strategy though I barely wrote three sentences.
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
