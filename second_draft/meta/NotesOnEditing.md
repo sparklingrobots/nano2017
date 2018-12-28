@@ -168,7 +168,7 @@ Okay, I gave up on "we" but I started writing it from Fi's perspective. I don't 
 The other thing is, I want to know *how* to solve this problem. Right now it feels like my only option is to write it all from that perspective to find it out. 
 
 ## 2018.12.27
-Work is super slow and it's taking SO MUCH will power not to work on this while things are slow. Wah-wah. Anyway. Time to hammer out 10 mins of work. I picked a bad sentence and started teasing out an actual story from the skeleton I had sketched there. Not a bad strategy though I barely wrote three sentences.
+Work is super slow and it's taking SO MUCH will power not to work on this while things are slow. Wah-wah. Anyway. Time to hammer out 10 mins of work. I picked a bad sentence and started teasing out an actual story from the skeleton I had sketched there. Not a bad strategy though I barely wrote three sentences. I re-read the Fi point of view stuff, and it only got life in the scene where Fi acctually sees Lo. The other stuff, the framing stuff? Meh.
 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
