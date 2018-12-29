@@ -317,3 +317,25 @@ North American city in ruins? Deciduous foresty place.  Highways are gone.
 "Rosa Luxemburg said the revolution would be a spiritual transformation and Adrienne traces that out beautifully in her post." Femme Too Deep podcast.  Some people want to behave and some people want to get free. They're all surviving. -adrienne maree brown
 
 What it is for someone to love someone(s) they know are bad for them.  Choosing individuality over a group that insists on the primacy of the group.
+
+# Beating The Story
+
+## Throughline p.21
+Solitude to belonging (Lo)
+Stable to chaotic (Society)
+
+## Core Question p.23
+Will Lo choose the stability of the Delvers, or the chaos of an unknown future? 
+
+### Boildown p.23
+This is the story of a woman asked to face an outside threat, who discovers the danger is far closer to home--and the choice she makes between saving the world she has always known or creating something new and different.
+
+## Protagonist(s) p.25
+
+## Supporting character(s) p.33
+
+## Thematic Opposition p.41
+
+## Genre p.42
+
+## Stance (if relevant) p.44
