@@ -185,6 +185,9 @@ So she both has to execute the tactical work of figuring out the threat, and wri
 Also every exercise I try to do (e.g. what's the throughline?) I come up with about 17,000 answers. I feel so much nuance that I fear the story is an invertebrate, just lots of overlapping shell bits and no spine.  Why can't I commit to solitude to belonging or stability to chaos or society vs individual? They all seem right, and certainly there will be lots of ways that the story moves. Why can't I just PICK one. wszwa				ZAWAQ
 Thanks, Caesar.  Reading more about dramatic characters, I really like the idea of poles and the way the dramatic resolutio can literally include those two words. Also inspired by his statement that writing a woman protagonist that isn't open vs. closed/free vs. oppressed/innocence vs. experience.  I'm wondering if the story *can* be more dramatic than tactical, though lord knows Lo has actual work to do that's more than just sitting around talking to people.  Of course, I'm also sitting here wondering if I could layer on dramatic poles as part of a transformational hero.  
 The story right now feels a bit flat and formulaic/adventure-y/pulp-y.  And that feels unsatisfying, though I do know there is room for a formulaic story to transcend it all. Just as there is room for a literary story to put a person to sleep.  UGH. SLEEP TIME. 
+
+## 2018.12.30
+Got about 8 minutes in. Check 4thewords for notes & the beginning of a scene.
                 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
