@@ -188,6 +188,19 @@ The story right now feels a bit flat and formulaic/adventure-y/pulp-y.  And that
 
 ## 2018.12.30
 Got about 8 minutes in. Check 4thewords for notes & the beginning of a scene.
+
+# 2019
+
+# January
+
+## 2019.01.03
+I did write yesterday, but it was super short. (I think.) 
+
+I'm feeling for sure resistance. The struggle of how to move forward feels huge. The two things that feel the most relevant also feel like HUGE changes to the story: Adding an important character to Lo's life, and switching the narrator to Fi.  I do like watching Lo more than being Lo. But that may not be super relevant. 
+
+I did some more of the Beating the Story book--basically each of the definitions they do in the first section. Most of it was helpful. I feel frustrated that I don't know what genre I'm writing. Political thriller? I don't know. Whatever it is I should probably figure it out. I do expect that the book will be outside of mainstream fiction but I still gotta sell it to folks, sorta. 
+
+Maybe I can get out of this slump by promising myself I'll be done with the book at the end of February no matter what.  Then I can just do the nano-style slug fest. Just write it. Just get the scene done even if it sorta sucks. There are like 15 more drafts coming, so who gives a shit if this one still sucks. Of course it does. (Now I'm wondering if I should just stop at the end of January...)
                 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters

@@ -323,6 +323,7 @@ What it is for someone to love someone(s) they know are bad for them.  Choosing 
 ## Throughline p.21
 Solitude to belonging (Lo)
 Stable to chaotic (Society)
+Devoted to rebellious (Fi)
 
 ## Core Question p.23
 Will Lo choose the stability of the Delvers, or the chaos of an unknown future? 
@@ -331,11 +332,49 @@ Will Lo choose the stability of the Delvers, or the chaos of an unknown future?
 This is the story of a woman asked to face an outside threat, who discovers the danger is far closer to home--and the choice she makes between saving the world she has always known or creating something new and different.
 
 ## Protagonist(s) p.25
+Lo is a transformational hero. She must achieve the emotional change of trusting herself and her own powers in order to prevent the threat to/from the Delvers from destroying her life and the lives of those around her.
+
+### Dramatic Resolution p.32
+After a life of *reliance* on the Delvers, Lo finally discovers that she has more *power* than the Delvers.
+
+### Ensemble Dramas 
 
 ## Supporting character(s) p.33
 
+Adversary: As Lo struggles with a lack of self-confidence and powerlessness, with being too careful, the adversary is the opposite: confident, powerful, unable to worry too much...arrogant. Robert McNamara, totally unable to see the failure even as it is obvious at every turn. 
+
+The adversary battle can be a minor part of a dramatic story (e.g. Lo has to make up her mind and make certain emotional changes, but she still has to disable Un.)
+
+Rivals: I don't think there is a rival here. 
+
+Competing Antagonists: That's what is happening here! There are multiple antagonists working at cross-purposes for relatively understandable purposes, and Lo has to sort out what they want and which one to throw her weight behind (or in front of, sorta). She's the powerful missing piece that can change the balance. 
+
+Un. Pale Man. The Queen. Where does the tree/fungus fit in this?
+
+### Foils
+
+Fi is a definite foil. Is she companion or sidekick? First we have to see her betray her beloved competing antagonist Un. 
+
+Su is a definite sidekick with small amounts of companion.
+
+Hx is a...I don't know. Both? Confidant, maybe. Maybe they have that mid-book scene where Lo confesses her fears or something. 
+
+Who could serve as a foil that shows what Lo could be if she fails or chooses the wrong path? Could this be the historical man who poisoned the tree? 
+
+Psychopomps - The Queen is this. Maybe the Pale Man, too, but not sure. 
+
+What are the arcs of my main characters? Fi needs one, and Lo. That might be it. 
+
 ## Thematic Opposition p.41
 
+If Lo's theme is reliance vs power, society's is hierarchy to anarchy, and Fi's is devoted to rebellious, how do they mix? 
+
+When choosing between hierarchy and anarchy, is it better to rely on others or live independently? 
+
+What is the cost of self-actualized living, and where are the pitfalls in that kind of society? 
+
 ## Genre p.42
+
+I still don't know enough about genre! I read too heavily in lit fic, maybe? I don't knooooow why this is so hard for me. 
 
 ## Stance (if relevant) p.44

@@ -1,0 +1,10 @@
+Lo was tired of taking so goddam much care all the time. She was tired of tip-toeing around when Hx was in a bad mood. When Hx was hungover. When Hx was in a good mood and it wasn't totally clear when or how or why that good mood might go black. Her entire life felt like one long parade of caring-about-Hx and while she knew that it wasn't really true, not really at all, there were times where the sacrifices and the burden and the anxiety Hxst felt so unfair and unreasonable. 
+
+She heated a pan of milk on the stove. The recent snowstorms hadn't helped--being locked inside wasn't doing either of them any favors, no matter how nice the trees all looked limned in white on a grey sky. Lo couldn't make Hx go on a walk any more than she could make the couch gon on a walk, but still, she wished she could kick them out for Hxst a couple days. 
+
+They both needed to see the Delvers, to be quite frank.  It had been too long and they were both getting out of whack.  
+
+Lo realized that she knew what the Delvers did when they worked on Hx. She remembered the song, Hxst as she remembered every song she heard, but more than that, she finally started to sense how it actually did the work.  They called the songs lullabies but they were somehing far more wild and powerful, a kind of magic that reached right into the heart of the person hearing it, whether or not they wanted it to.  She could sense, somehow, the way the music sunk deep into Hx on a level beyond the five senses--it sunk into their body and did some work on what was likely a chemical level.  They fixed you from the inside, the Delvers did, but most people couldn't feel it the way Lo could. It was like taking an advil. Most people don't know, can't feel exactly the way that the ibuprofen gets in there, squeezes the water out of your cells so they stop aggravating each other (Is that at ALL how advil works).  They take it; they feel better. 
+
+But Lo was starting to feel more than she had ever felt before. She could feel, or imagine, or know? the songs as they entered the body, the effect they had on both the singer and the patient.  
+She was beginning to think she could do some of the same. 
