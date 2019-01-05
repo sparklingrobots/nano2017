@@ -43,7 +43,7 @@ Lo meets lots of Delvers, and begins to understand more about the world of the D
 
 (OMG MAYBE LO DOES ALL THE RESEARCH IN THE WELL AND NOT AT HER OWN HOME, HENCE SHE GETS A LOT OF TIME TO SPEND WITH THEM AND LEARN ABOUT THE BADNESS) (POSSIBLY ALSO WHY SU HAS TO GO ON HER BIKE RIDE?)
 
-The Bad Delvers actually enlist her to fight the war for them--to write the song that will turn everyone into a killing machine.  But as she works she begins to realize that things are not as they seem. Finelle uncovers the connection with the tree, and they begin to piece together that the Delvers are trying to start a war using Lo as the flashpoint.  She writes two songs--one battle song, and one that is a curative song, that will save the others.   She keeps it secret. 
+The Bad Delvers actually enlist her to fight the war for them--to write the song that will turn everyone into a killing machine.  They cannot go to the tree without becoming very sick (like Fi, sort of). But as she works she begins to realize that things are not as they seem. Finelle uncovers the connection with the tree, and they begin to piece together that the Delvers are trying to start a war using Lo as the flashpoint.  She writes two songs--one battle song, and one that is a curative song, that will save the others.   She keeps it secret. 
 
 The song that Lo writes is a way of killing the fungus--it will kill some of the most badly infected Delvers and disable many of them for a while.  Finelle is useful in this because of her knowledge of botany. 
 

@@ -201,7 +201,20 @@ I'm feeling for sure resistance. The struggle of how to move forward feels huge.
 I did some more of the Beating the Story book--basically each of the definitions they do in the first section. Most of it was helpful. I feel frustrated that I don't know what genre I'm writing. Political thriller? I don't know. Whatever it is I should probably figure it out. I do expect that the book will be outside of mainstream fiction but I still gotta sell it to folks, sorta. 
 
 Maybe I can get out of this slump by promising myself I'll be done with the book at the end of February no matter what.  Then I can just do the nano-style slug fest. Just write it. Just get the scene done even if it sorta sucks. There are like 15 more drafts coming, so who gives a shit if this one still sucks. Of course it does. (Now I'm wondering if I should just stop at the end of January...)
-                
+
+## 2018.01.05
+Working on a profile of the Queen. 
+Worked a bit on the scene of the Delvers. 
+
+Really starting to think some time away might be a good choice. When I come to a scene I haven't read in a long time, I am both surprised by it and also try to avoid reading it....sorta out of a misguided sense that I shouldn't get too familiar with things, and also maybe out of boredom or jsut feeling like it's not the best use of my time? 
+
+So I want to give this a break and pick it up in a short while, but part of me is like, NO WORST IDEA YOU CANNOT LOSE MOMENTUM. Like, I do feel that stopping in November is part of what has made it so hard to get back into. December felt pretty much hard. Hard to keep up, hard to care and not hate the book.  But when I stop and re-read it in a month or whatever, it's going to still be a heaping pile of trash.  Still, that will be the third draft of fifteen, so of course that's how it feels. It WILL still be a heaping pile of trash. 
+I'll keep going for now. I'll check in with Sasha on Tuesday and decide then what happens next. If I dont work on the novel, I feel compelled to at least try a short story to practice some of these principles, and just to keep my fiction knife sharp (she says even though all I can really think about right now is zine-making and poetry UGH THE CREATIVE LIFE IS HARD).  Even when I'm totally killing it, which I can say without reserve right now, it's still exhausting and uncomfortable. 
+
+Here's the other part of putting this away: I was hoping this draft would be the one that made it into something worth reading. Something close to a book. This doens't feel close to a book. And so I put it away = I have to do this again to get it there. Because I'm not giving up on this book until it's something I can share with someone.  Something that isn't just nonsense. I guess putting it away will give me a sense of perspective, will let me see how much of a book I do or don't have, in a way I really can't do right now. And maybe this is the right time to hire someone? I don't know. I feel sorta compelled to figure this all out on my own, while also understanding that I can't do this the hard, slow way. I don't have that much time. I'm 35. I have been writing all my life, but not fiction. I need to accelerate as much as possible, and I do have money. I just need to be sure I'm not hiring someone as a replacement for my own work, and that I am hiring them as a bonus to it, an accelerant. 
+
+Tomorrow I will work on a fight between Hx and Lo before she leaves to go to the Well.  Hx is vulnerable, and Lo is scared for them. Hx has been hanging with the Pale Man and Lo doens't know it.  When she leaves, she doesn't realize she's leaving Hx to fend for themselves in a very difficult position. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

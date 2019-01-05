@@ -1,5 +1,7 @@
 SUMMARY: Lo figures out a little bit more of the mystery by looking at old maps. 
 
+She didn't remember the voice in her midn for at least a few days. (From the Council meeting).
+
 They were all out, working.  The house was quiet, no devices humming, no sound of lights burning. All the lights were off so she sat in the kitchen near the largest window.  The large wooden table was from her childhood, her parent had collected the wood themselves from fallen timber and sickly trees.  That's how all furniture worked, which is also why people tended not to have large families. 
 
 The wood didn't match, making stripes of darker and lighter woods.  The softer woods bore the marks of her childhood drawings, pens and crayons pressing light shapes into the wood.  

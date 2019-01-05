@@ -41,11 +41,15 @@ _The void grows large._
 
 The word void woke her from the trance of the beautiful song.  The force of the Council working in concert was not something many ever experienced--they used it only for helping the other Delvers stay in sync, and non-Delvers were usually not able to withstand it.  But this one was different than any others. 
 
-[con't from 2017.11.20.md]
-
 Something about the way they said void had made her tremble--her stomach heaving. Her vision blacked out in the center of her eyes. The song was still reverberating in the large honeycomb shaped hall when her vision returned. 
 
-Un felt for Lo, but also knew she was not someone to pity.  They had read her records, and it was clear she would be able to handle herself--well, no one could really handle themselves around the Delvers but she would be fine.  Still, only occasionally and with great preparation for the other had they ever done what they just did to Lo: a concentrated blast of gratitude wrapped around a core of fear and anxiety.  The fact that she was still standing showed her mettle.  Un was intrigued, to sya the least. 
+In the midst of this onslaught, this hammer of emotion slamming into Lo, the nail that always stuck up, she heard another voice. At first she looked for the singer, scanning the room as best she could while being so short of breath, but the voice wasn't coming from these people.  It was so close...it took her a moment to realize that the voice was not something she heard with her ears, but rather in her own mind.  
+
+"Be careful, LoAna Iquy. They don't mean you harm. This is a tangled knot."  She suddenly saw, as if from above, her total isolation here--surrounded by Delvers, all stronger than her, the secrets they were keeping, and her, little Lo all alone and literally surrounded.  A vision of Hx alone at home crossed her mind, and her sorrow was so great that her internal shield slipped a bit, and the song knocked the voice clean out of her head. Now she felt nothing but a warm bath of love. Some part of her mind scrabbled to keep the voice, to keep the memory, to stay independent, but couldn't manage, slipping away on the current of song like a leaf on the surface of a fast-moving river.
+
+Un saw Lo give in, almost felt bad for Lo, but also knew she was not someone to pity.  They had read her records, and it was clear she would be able to handle herself--well, no one could really handle themselves around the Delvers but she would be fine.  Still, only occasionally and with great preparation for the other had they ever done what they just did to Lo: a concentrated blast of gratitude wrapped around a core of fear and anxiety.  The fact that she was still standing showed her mettle.  Un was intrigued, to sya the least. 
+
+---
 
 "Lo, good to see you this morning." Un called out to her across the hall. "Join us, if you will."
 
@@ -72,8 +76,6 @@ Actually maybe not. Maybe they withhold the info and that becomes part of the co
 "We would like to send you to the tree to see "
 
 "We have heard reports from distant Wells that some of their Delvers have disappeared. The "
-
-TODO: This Council of Delvers scene is a mess and I don't know where to go with it.
 
 Here is what we know so far. 
 
