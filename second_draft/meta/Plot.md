@@ -109,6 +109,10 @@ Recent inspirations: 
 * Robert McNamara. Someone in Vietnam said that he believed there was an answer to everything--and that was his downfall. Who is like that in the story? And also, what in general can be taken from the Vietnam war? The endless confusion of friend and enemy, the arrogance of leadership -- truly believing they were leading us into a better future. It feels relevant.  But not sure how or why, exactly.  
 
 
+What happens when the towns are destroyed?  
+
+I think the people still live there, but they are suspicious of each other, they kill the Delvers and stop helping each other. Crime rises, and the Well loses control of the place.  It starts when a song is broadcast to the town--sort of tricky but somehow the bad guys have figured out how to do it. It's a combo of the song and a potion of some kind. The first town fell because one of the Delvers sold them out--a Delver who was hurt by the Well turns and joins the other side, poisons everyone and sings the song and suddenly everyone is unhappy.  But the Delver feels justified
+
 # SNOWFLAKE METHOD
 
 ## ONE SENTENCE VERSION:

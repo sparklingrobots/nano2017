@@ -6,14 +6,9 @@ He was unremarkable, like a bowl of cold oatmeal congealed in a paper bowl.  Fro
 
 And he knew it, was the worst part.  And he wanted to keep it that way. 
 
-I don't know how this fits into the story. 
-
--- 
 His shirt was perpetually rumpled.  He seemed to always be wearing the same outfit, though it seemed much more likely he was the type devoted to wearing the same outfit over and over rather than the type to wear the same exact shirt and pants--more of a political statement than anti-consumerist. 
 
 Looking at him you could see a soft-bellied, mid-rank Nazi.  But without the insignia it was hard to tell. 
-
----
 
 Anyway it's not about him it's about her. It's about how you can brush against pure evil and barely notice, because most of us are capable of dark deeds.  But in this time, after the Great Mourning, and the Rage of the Women, and the end of the genders, we all worked so hard to keep it under control, to find the right outlets, to be better than we ever needed to be, that she was shaken to her core to see that this was even an option for humans anymore. 
 

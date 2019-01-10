@@ -215,6 +215,39 @@ Here's the other part of putting this away: I was hoping this draft would be the
 
 Tomorrow I will work on a fight between Hx and Lo before she leaves to go to the Well.  Hx is vulnerable, and Lo is scared for them. Hx has been hanging with the Pale Man and Lo doens't know it.  When she leaves, she doesn't realize she's leaving Hx to fend for themselves in a very difficult position. 
 
+## 2018.01.08
+I wrote yesterday for a good twelve minutes--and I mean that, they were good. Fleshing out the Hx situation. Maybe I'm still avoiding the middle of the book. I'm also starting to get a handle on what "first draft" means. It means I have a grip on the story I'm telling, on what happens.  It's not done, there are dead ends and all kinds of problems.  But I know more or less the shape of it. I feel close to that--but not quite there yet.  The ever-outstanding question of 'what is the exact threat' is freaking me out, still, forever, always, but I'm getting closer. 
+Okay, just reviewed some scenes I haven't read in a while and got some interesting bits.  
+
+A) I am convinced Fi needs to start as essentially a servant of the Delvers and then switch sides to Lo.  So we need some scenes where they aren't particularly friendly with one another. 
+
+B) I have left out the strand of Lo as historian, but I think it jives with her desire to be a Delver. She wanted to be a Delver who keep the Official Histories, but since she can't she writes them on the side.  THAT SAID, she knows the Delvers review everything before it can be published so she's a bit combative with them as it is.  I think this is important to bring back. 
+
+C) I need to figure out what kind of research she can do that will resolve this.  
+D) I forgot the Pale Man builds a device with Io's help. Io is now Hx, who is abandoned by Lo as she does her research. This seems promising. 
+
+## 2019.01.10
+
+Today I spent my time reviewing the work I did in December. Added some scenes that should have been added in the first place.
+
+What I found? Mostly noveling, which I realize now is also why I was resisting reading it--I generally resist reading any scene I'm not working on (I think it makes me crazy, like I feel super compelled to fix mistakes because I'm convinced I'll never come back to that scene and fix them, or perhas stupid me will return and I won't even see the mistake.)
+
+But actually it was good, even though I skimmed. I found some stuff that didn't make it into the book and added it into the files.  
+
+--
+Okay, so there is some historical evil embedded in the tree, which emerges this season because WE NEED A REASON.  That evil emerges in a few ways -- it poisons Delvers immediately surrounding the tree. It ruins the bubbleweed harvest, of which we have lost all thread.  And then, once it is free, it colonizes some people into carriers -- they are not disabled by it like Fi, but able to and willing to propagate it.  
+One of the people who is infected accidentally, early on (the Pale man) (What happens to the Delver who runs from the murder scene? Or maybe I DO like the double murder parallel) is smart and knows that he can alter the states of the entire Delver force via song. So, the true threat is the fungus, but the threat intensifies with the pale man and his sub-group of Evils. (Does he run from the Delvers or stay integrated? I think the original murderer could be useful here.)
+Lo needs to figure out a) The issue with the tree, which Fi will be needed for.  They will need to create a protection against this historical evil (plus possibly a way to cure infected Delvers, though they might be beyond help).   Remember: songs can be a protective spell. 
+b) The threat from inside the Delvers, which will be neutralized by song.  This is what Lo is good at.  Her historical knowledge will come in handy here. 
+
+TOMORROW I WRITE: 
+1) Scenes from/about the Pale Man before he turns. 
+2) Scenes with Fi working on the cure for the tree
+3) Scenes with Fi and Lo barely knowing each other
+4) How does the Pale Man get his work done? Build his network? 
+
+NOTE: It's really helpful when I tell tomorrow's self what to write. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling

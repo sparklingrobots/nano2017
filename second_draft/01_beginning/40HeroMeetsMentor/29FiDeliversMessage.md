@@ -2,7 +2,9 @@ SUMMARY: Fi delivers the mission to Lo.
 
 (I think this scene needs to start with Lo in a kind of disheveled/frantic state.)
 
+I saw her first in the vision. At the time I didn't know the seven figures in my vision were living, it felt like a visit from a different timeline, a different universe.  So when I saw her, ordinary in brown pants and a well-loved purple t-shirt, warm green eyes a bit bleary and distrustful, opening the door to her frankly shabby apartment, it was like biting into a bit of bone you didn't know was in your food. I couldn't place her at first, the shock was so much, but I finally realized she had been one of the singers.  How or why this normal looking person would become that menacing presence, that warlock I saw in the vision--that part was still obscured to me. 
 
+---
 
 There was a knock at the door. 
 

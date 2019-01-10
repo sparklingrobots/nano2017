@@ -40,6 +40,8 @@ Fi had no idea how long they had been coming for the harvest, which long gone Gr
 
 Other places had bubbleweed, tried to use it the way the Delvers did, but it was so much harder to harvest as it washed away during the night. Nets, sure, but it just....something about this spring made the harvest exceptional.  Fi's personal theory was both the water flow change, and something else...the bubbleweed here was just happier. Wanted to grow thick and strong. She thought it had something to do with the big willow on the edge of the spring. It seemed, sometimes, as if they bubbleweed and the tree were at odds.  Were in some long battle, and the bubbleweed thought it could win if it grew more vigorously. 
 
+[The bubbleweed is buoyed by the protective spell, as is everything in the immediate vicinity]
+
 She looked up at the tree, finally, realizing that she'd been avoiding it since she arrived. 
 
 Fi felt stupid for not noticing before, the obvious strangeness of this tree. But she also intuited that the tree had been strange to her for years, and strange to others before.
