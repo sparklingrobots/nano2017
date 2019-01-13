@@ -248,6 +248,28 @@ TOMORROW I WRITE: 
 
 NOTE: It's really helpful when I tell tomorrow's self what to write. 
 
+## 2019.01.12 
+Things I thought about: Alcohol, and how it's never in any of my books, but definitely isn't in this one. Do they know about alcohol? OH WAIT there is one scene with booze that I'm probably needing to remove or rewrite. 
+
+I found this amazing set of stock photos: https://www.123rf.com/photo_56298672_.html?utm_source=MD&utm_content=56298672&utm_medium=MFeed&utm_campaign=MD&src=momentumdash That feels really relevant to forest-y stuff and specifically the featured one there feels...I don't know, like the spring.  Like everything around the spring is super intense. 
+
+I am literally hiding from my family hoping they don't find me and interrupt my writing. I already only have maybe 15 minutes to work. D:
+
+Looking at my list of things to write, I think Fi is just perhaps woven into the scenes where Lo is at the Well.  I don't think they meet before that.  Briony is the one who takes Lo back to the Well. I think we can have some Fi scenes before they meet, though.
+
+I realized that I keep having ideas that impact *other* scenes. My current strategy has been to just write a note where I currently am. If I"m feeling organized I move that note into the extremely long and difficult to parse meta notes I have.  It's not working and that's totally why I am getting so overwhelmed. I have nowhere to go to fact check myself, to see how that thing actually works so I'm just flying on instinct. It's....okay but I keep stumbling on these huge ideas I get while writing when they're not something I feel prepared to address and I'm like OH SHIT I SOLVED THIS PROBLEM ONCE and then I forget the solution again.
+
+At the moment I'm setting up a spreadsheet to track some things. I don't know yet if I'm tracking the right things or if this will be useful in the long term but it's feeling useful. I'm inspired by JK Rowling's timeline (dates down the left, and notes on where characters are at that point). 
+
+I'm not sure yet how to track FACTS of the novel (e.g. when I realize how a thread of the plot resolves, or whatever...like maybe all the Delvers are inoculated with the fungus as children or something). Those seem well-suited to written text but that's not working for me. Maybe if it was super structured or super slimmed down, that might work. 
+
+ANYWAY I have some faith in this new strategy. K is after me to sign up for that how to revise a novel course, which is only $199 but I have some deep resistance and I don't fully understand why. 
+https://docs.google.com/spreadsheets/d/1BEUQD7nzss3vqcRj9Jxhs2eZHrNKXaAcnWKaupOWUGc/edit?usp=sharing
+
+
+
+
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
