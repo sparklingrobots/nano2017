@@ -32,3 +32,6 @@ Io is an ex-lover she sees around from time to time.
 Her parents died a long time ago, she never really knew them and instead was raised by her "aunt" and "uncle". I'm realizing I have like zero ability to give Lo any parental figures at all and I don't know why. 
 
 She goes to singing groups all the time but isn't particularly close to the people who attend particularly because of Delvers. 
+
+# Mental Health
+Lo is somewhat mentally ill, she goes to the Delvers a lot for mood adjustments.  This mental illness is also part of her skills and why she can defend herself against delving. 

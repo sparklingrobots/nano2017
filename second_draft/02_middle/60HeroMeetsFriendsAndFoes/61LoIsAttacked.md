@@ -54,3 +54,17 @@ She whipped her head around and saw a pale person turn and start sprinting away.
 She'd seen this person in the market before.  There was no reason for them to rush off--unless they were somehow responsible for her pain.  
 
 She knew with a sinking feeling they must be. 
+
+---
+
+SUMMARY: Lo figures out that she is going to kill the fungus, which is going to disable the Delvers. 
+She sat down against a tree, panting heavily.  The pain was fading but not gone, and the memory of that figure moving off through the trees replayed in front of Lo's eyes. 
+She felt a perverse sense of relief, really, that she had been right. She had guessed. there was something dark there, the image of the spring covered in bubbleweed, dark shadows below, and now she knew she was right.
+It started early. It started with her childhood really, nad her sense that the Delvers had rejected her, had somehow played her wrong. No one else felt that way, as far as she could tell, and she kept it to herself. Everyone else thought the Delvers were great but Lo. 
+And as she grew up, she strengthened her defenses against them. She didn't want them knowing about her doubts, her fear, her feelings of rejection, so she learned to hide them. Which meant the delving wasn't as effective for her, which meant they couldn't hide themselves from her. 
+But Lo wanted to believe, she wanted so badly. She loved the singing, and the hall, she loved the harvest, she loved going to see Briony. 
+On an average day, Lo had been happy. She didnt think so much about hte other life she wanted to have, the other world she could have been inside of, and she was happy. 
+Once she got to the Well, she started to feel the currents shifting.  She knew some of them had secrets, weren't telling her the whole mission.  And she knew others were whole heartedly committed to her success.  But now, now...
+There were people actively trying to hurt her.  And Fi, if everything Fi said was true...there were dark forces at work, wrapped inside of the otherwise good Delvers.  And that man...that man she just saw wasn't even a Delver. She didn't even know if she was from the community.  
+
+She needed to talk to Fi. 

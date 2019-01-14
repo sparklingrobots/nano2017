@@ -266,8 +266,17 @@ I'm not sure yet how to track FACTS of the novel (e.g. when I realize how a thre
 ANYWAY I have some faith in this new strategy. K is after me to sign up for that how to revise a novel course, which is only $199 but I have some deep resistance and I don't fully understand why. 
 https://docs.google.com/spreadsheets/d/1BEUQD7nzss3vqcRj9Jxhs2eZHrNKXaAcnWKaupOWUGc/edit?usp=sharing
 
+## 2019.01.13
+I'm only having about 14 minutes of writing time atm. Last night I talked with Paul about the book and he was like, 'Oh sounds like a thriller, then!' and that was sort of rewarding to know that I've correctly identified my own genre, at least somewhat. I now feel sorta compelled to read more thrillers just to know what I am doing correctly and what incorrectly.
 
+One scene we discussed was the "oh fuck" moment when you (and maybe the characters) realize that everything is all fucked up and not at all what we thought.  He talks about books where you're like, "Oh, this is how the world works" (WORLD BREAKING DISCOVERY) "oh THIS is how the world works". 
+Which made me realize I don't have that scene in the book. The thing is, I'm not sure it's like one world-breaking discovery, and in any case, Lo has to pretend all is well as she moves forward anyway. (I'm realizing maybe Lo's illness makes her hard to delve or has given her the ability to shut off delving).... this is exactly the kind of thing that I don't know how to track. 
 
+Things I said about the book last night: 
+It's more political than I expected, and it's hard to track allegiances and the events that trigger shifts in those allegiances.
+
+I'm not really in the place of knowing my chapters yet.  Not that I will after this draft, but at some point in the near future, I think I'll have a sense that like, this one is what I *think* is the first chapter. I feel like a weirdo for not knowing that about my own book. 
+--
 
 
 # LINKS I WANT TO REVIEW

@@ -1,0 +1,1 @@
+SUMMARY: Fi and Lo talk, Fi shares what she knows about the fungus, Lo shares what she knows about the song.  Together they work out the outcomes--if the fungus is cured, what happens? If the fungus is not cured, what happens? If the Bad Delvers are allowed to go on?  How can they disable/kill/whatever the bad people given how connected they are to all the good delvers? 

@@ -145,6 +145,10 @@ After the Great Mourning, society is stable--but a new threat forces an amateur 
 
 An amateur musicologist joins forces with a plant witch to stop a threat no one else can even understand--but they risk everything in the process. 
 
+It's a far-future story about a struggling utopia and whether or not it can be saved. 
+(That's not the tag line I had last night but it's close.)
+
+
 
 ## Tara's Kinda Rough Plot Summary to Just Figure Out If I Know What Happens In This Book Chronologically
 
