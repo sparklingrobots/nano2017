@@ -278,6 +278,8 @@ It's more political than I expected, and it's hard to track allegiances and the 
 I'm not really in the place of knowing my chapters yet.  Not that I will after this draft, but at some point in the near future, I think I'll have a sense that like, this one is what I *think* is the first chapter. I feel like a weirdo for not knowing that about my own book. 
 --
 
+## 2019.01.15
+Yesterday's work on the book was just cleaning up some writing I did in 4thewords > Github transition. 
 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
