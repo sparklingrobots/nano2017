@@ -22,7 +22,7 @@ The Delvers decide she will need to help them because she is actually more power
 
 Lo runs from the scene of the crime. She tries to push it from her mind, assuming the Delvers will address it and calm everyone--but the ongoing silence from the Delvers drives her to extreme distress/anxiety.
 
-Io starts falling apart and things get bad in Lo's personal life. 
+Hx starts falling apart and things get bad in Lo's personal life. 
 
 4. hero meets mentor. mentor gives hero courage to continue
 
@@ -88,48 +88,32 @@ I think the people still live there, but they are suspicious of each other, they
 
 ## Tara's Kinda Rough Plot Summary to Just Figure Out If I Know What Happens In This Book Chronologically
 
-Background: 
-* Centuries ago, a man was sent on a mission to the New World--to embed a sonic weapon in a sacred place that would accomplish WHAT EXACTLY.
-* Our protagonist, Lo, is lonely and unhappy with SOMETHING--she needs something. 
-
-
-This society is relatively small and isolated, ruled by a class called the Delvers. The Delvers are a mix of highly trained and naturally gifted--they are able to manipulate emotions with sound as well as by touch.  They are extremely sensitive to emotional states and can calm entire populations.  Some Delvers have particular gifts -- eg Fi has a connection with plants. They acheived this level of skill through a combination of skill and because of a very rare and specific tree they use to make potions. They use the potions both for themselves and also for calming the population around them. 
-
-The Delvers rule over our society, but they also send emissaries to recruit/kidnap children with natural skills to bring them into the fold. They have been doing this for generations so most of the group is unusually sensitive--they are just untrained, used for breeding stock.  The other societies have many different ways of being. The Delvers started out as an organization devoted to peace keeping, higher evolution of humans, enlightenment, and other good things.  But over time they lose focus on what they are here for and start to take power for power's sake.  The Delvers manage foreign relations with other communities in some way that keeps everyone safe but it's not clear how they do that to the people in the community. There are not many outside visitors though within a county-area you are welcome to travel among towns. 
-
-There is a new strain of Delvers who are not at all dedicated to the principles of the Delvers--they are just after power. These power-hungry Delvers end up merged with another group of Delvers who who don't agree with the policy of taking children against their will. The Bad Delvers and the ones who don't like the kidnapping have decided they want to stop the Delvers from existing.  They start collaborating with another WAY WORSE culture that still has a lot of technology (radios). They plan to broadcast signals that will disable the Delvers. The main BA delver is naive to the avarice and evil of the outsiders. (NEED CHARACTER)
-
-At the seven yr harvest of something cool, there is a murder of two Delvers--one bad apple Delver was trying to ruin the harvest; one good apple Delver tried to stop them and they both ended up dead. 
-
-Lo sees this happen, but runs away before anyone can find her. 
+The Bad Delvers start collaborating with another WAY WORSE culture that still has a lot of technology (radios). They plan to broadcast signals that will disable the Delvers. The main BA delver is naive to the avarice and evil of the outsiders. (NEED CHARACTER)
 
 The Delvers hide the murder for a while, Lo starts to fall apart. More bad things start happening around town. 
 
 The Delvers meet and decide Lo has to be the one because of her Secret History.
 
-* A red-headed person appears on Lo's doorstep with a mission from the Delvers (an organization that Lo wanted to join but was rejected from as a baby)--there is an evil growing in the world and the Delvers believe Lo can help.  The red-head had a vision of seven robed figures around a tree, singing as the world burned. 
+* A red-headed person appears on Lo's doorstep with a mission from the Delvers (an organization that Lo wanted to join but was rejected from as a baby)--there is an evil growing in the world and the Delvers believe Lo can help.  
+
+
+The red-head had a vision of seven robed figures around a tree, singing as the world burned. 
 * Fi guides Lo to the Delver HQ, where she is given the mission and begins to see something is awry with the delvers. 
 
-
-Lo goes to the Well to receive the mission and begin her research and training. While she is at the Well, she starts to uncover the plot of the BA Delvers. 
-
-* Lo, with the help of Su and Fi, begins researching the mission from centuries ago to try to uncover the cure. * Lo eventually breaks down and tells Su/Sun everything there is to know. Su gets involved and goes to the next town over to see if things are better/worse there (moto scene) 
+* Lo eventually breaks down and tells Su/Sun everything there is to know. Su gets involved and goes to the next town over to see if things are better/worse there (moto scene) 
 
 * The bad force begins awakening in certain people, causing them to become selfish and stingy TO WHAT END? One of those people is Lo's lover, who eventually turns on her. WHAT IS THE MECHANISM FOR CONVERSION? DOES LO'S LOVER TURN EARLY OR IS IT A LATE BETRAYAL? * Lo discovers one of the Delvers is leading the betrayal.
 
-
-* Lo discovers her history with the Delvers.
-
-* Lo has a mysterious encounter with a lot of birds
-
 She realizes that the powerful (both GA and BA) Delvers essentially breed the lesser Delvers to increase their powers using mind control. She has to sort out for herself what she thinks the best choice is: Aid and abet kidnappers who keep their society healthy, or aid and abet the people who are going to destroy them and leave their society helpless. She continues her research and learns about the signals that are being broadcast by the BA Delvers + friends. She reverse engineers it, turns it into a signal that will activate the latent powers in everyone. She tests it on Fi and it works. Both BA & GA delvers are terrified of this as their power will be greatly reduced. 
 
-Her choice is made for her when SOMEONE turns on her and tries to murder her in the Well. She escapes but not without putting her recording on repeat at the Well, rendering most of the Well incapable of action. (How does she disable the bads?). She decides she has
+Her choice is made for her when SOMEONE turns on her and tries to murder her in the Well. She escapes but not without putting her recording on repeat at the Well, rendering most of the Well incapable of action. (How does she disable the bads?). 
 
 ~The bads start marching in from their town, thinking the signal has gone out.~ Lo has instead risen her own army of amateur delvers from the society at large.  
 
 * Lo tracks them out to an abandoned military installation, where their device is being built to unleash the badness. WHAT IS THE BADNESS. Lo realizes that in the past everyone had been creative and had been able to share their ideas with anyone.  She realizes the histories are wrong about that and the Bad Guys have also figured out radio broadcasting again. 
+
 * The tree has been destroyed! How can they complete the sacred ritual? (I'm sta)
+
 * Somehow Lo, Fi & five others make it to the sacred tree to complete the song.  I think a bad guy interrupts it and eventually birds turn to Lo and bow to her.  She has SOMEHOW destroyed both the bad guys and the Delvers.  A new world dawns. 
 
 The song has to neutralize the Bads as well. Could it be a song of releasing power/ambition? Could it be the song of mourning that brings them to a halt?  Current theory is they are all bound to the Queen; they have some kind of fungal infection that allows them to communicate very closely but it leaves them susceptible to corruption (which is what the BA Delvers are). This is why the song disables the Delvers so critically--it's very painful for them to be isolated.  

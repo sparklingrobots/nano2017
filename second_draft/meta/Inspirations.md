@@ -7,5 +7,4 @@ Inspirations: 
 * Emergent Strategy.
 
 
-(Started this way late in the process but I'm keeping it in case it's helpful.
-)
+(Started this way late in the process but I'm keeping it in case it's helpful.)

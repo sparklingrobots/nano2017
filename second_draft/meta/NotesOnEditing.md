@@ -283,8 +283,17 @@ Yesterday's work on the book was just cleaning up some writing I did in 4theword
 
 This morning I spent about 30 minutes hammering out a plot spreadsheet. This still may not be the right tool but it's definitely highlighting the parts I'm worried about and that aren't quite working.  I"m going through the Plot.md document now and seeing what I can cut out of it, what's wrong, what's an open question, etc.  I'm at about 4300 words and want to get that slimmed way down. 
 
-I still have no place to track...facts. Like: The Delvers have a special decoction of the fungus (if they do). That's not a plot point. Maybe the fungus needs a character sheet?
+I still have no place to track...facts. Like: The Delvers have a special decoction of the fungus (if they do). That's not a plot point. Maybe the fungus needs a character sheet? Okay, I made character sheets for the fungus and the Delvers--place to collect everything that isn't specifically plot related. 
 
+Okay, I just read a handful of exercises from Now Write! and none of them were bad. But none of them are solving things for me, either.  I'm beginning to think quite seriously about taking a break from the novel til I dunno...February to see if I can get into the plot as it stands, maybe I'll be able to sort out what's going on with a fresher eye. Right now I feel reallllly caught up in the details and unable to sort my way through it. I'm also tired, which doesn't help. 
+
+I did like the advice to add two regular-life subplots in to keep the tension up and make sure there's enough conflict.  But I think that may need to wait til my eyes clear a bit and I have some distance from what's here to see if it's any good at all. 
+
+If I do put down the novel, I have a few things I want to think about: What do I do *instead* of the novel? My first impulse is zines, poems, short stories--more or less in that order.  That seems okay to my eye.  I do want to know when I'll come back to it. Maybe once again when I'm on writing retreat and I can just sit and relax. 
+
+(Note: I still feel kinda bad about the way my last retreat went down with the housing snafu etc. I probably need to let go of that.)
+
+Okay, how will I make the decision to let go of this for now? I feel like I've taken in too much how-to-write material without writing anything to a finished state.  Let's evaluate and maybe bring it up with Sasha. 
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
