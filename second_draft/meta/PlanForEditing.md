@@ -1,12 +1,12 @@
 # Plan for editing
 
 * ~~Read the whole dang thing~~
-* Put it in sequential order-ish -- done on paper, not done digitally
+* ~~Put it in sequential order-ish~~
 * Keep working on the plot, solidifying into one story, not these dozens of interlocking possible stories. 
 * Identify gaps in the story that need to be written
+* Write new scenes
 * Identify weakly written scenes that need to be revised
 * Rewrite bad scenes
-* Write new scenes
 * Go through each scene and improve it sentence by sentence.
   - Is verbs
   - Passive voice

@@ -113,48 +113,7 @@ What happens when the towns are destroyed?  
 
 I think the people still live there, but they are suspicious of each other, they kill the Delvers and stop helping each other. Crime rises, and the Well loses control of the place.  It starts when a song is broadcast to the town--sort of tricky but somehow the bad guys have figured out how to do it. It's a combo of the song and a potion of some kind. The first town fell because one of the Delvers sold them out--a Delver who was hurt by the Well turns and joins the other side, poisons everyone and sings the song and suddenly everyone is unhappy.  But the Delver feels justified
 
-# SNOWFLAKE METHOD
-
-## ONE SENTENCE VERSION:
-
-Todo: Take an hour and write a one-sentence summary of your novel. Something like this: “A rogue physicist travels back in time to kill the apostle Paul.” (This is the summary for my first novel, Transgression.) The sentence will serve you forever as a ten-second selling tool. This is the big picture, the analog of that big starting triangle in the snowflake picture. (https://www.advancedfictionwriting.com/articles/snowflake-method/)
-
-# In a world where sound is everything, an amateur musician discovers a secret that threatens the world she loves, and finds herself forced to choose stability or risk change.
-
-# As the seven year harvest approaches, everything is chaos. Dark forces have taken a few Delver towns and now the Delvers are employing the most dangerous weapon they have (Lo) in a desperate gamble to stave off the darkness.  But Lo doesn't get there in time so by the time the threat is stopped, most of the Delvers are dead. Lo and Fi have to bring back society in their own image. 
-
-A lonely musician saves the world from an inflexible religious order and a historical evil all at once. (17)
-
-A rejected healer turned historian discovers the secret that will save the world from an ancient evil--but will she be able to stop the unraveling of the world she loves? 
-
-A rejected healer, a historian and a small child are trapped in an abandoned industrial facility, threatened by a man hellbent on undoing the social order.  
-
-A centuries-old secret threatens to unravel the peaceful world of the Delvers, unless Lo can stop it--but will she have the courage to risk the structures she is trying to protect? (34)
-
-Humanity has found peace--but a secret threatens to come to light that will destroy everything. (No characters.)
-
-Lo has to solve the puzzle before the bad guys outnumber the good. 
-
-One woman is recruited to save the world around her--but as she does, she discovers the world may not be worth saving at all. 
-
-Lo is the force of creativity that causes some destruction but brings about something marvelous. 
-
-The Delvers keep harmony--until one of them is brutally murdered. Suddenly, someone they once rejected is their only hope for maintaining peace and control--and she's not sure she's on their side. 
-
-After the Great Mourning, society is stable--but a new threat forces an amateur historian to make a difficult choice. 
-
-An amateur musicologist joins forces with a plant witch to stop a threat no one else can even understand--but they risk everything in the process. 
-
-It's a far-future story about a struggling utopia and whether or not it can be saved. 
-(That's not the tag line I had last night but it's close.)
-
-
-
 ## Tara's Kinda Rough Plot Summary to Just Figure Out If I Know What Happens In This Book Chronologically
-
-“Music directly imitates the passions or states of the soul; hence, when one listens to music that imitates certain passion, he becomes imbued with the same passion; … In short, if one listens to the wrong kind of music he will become the wrong kind of person; but, conversely, if he listens to the right kind of music he will tend to become the right kind of person.”
-
-~ Aristotle, Politics XIII
 
 Background: 
 * Centuries ago, a man was sent on a mission to the New World--to embed a sonic weapon in a sacred place that would accomplish WHAT EXACTLY.
@@ -212,10 +171,6 @@ Bad Guys = loners, like cats. Controlling/building a radio broadcast network to 
 Lo = the blend of both, individuality within the collective. Lo is creativity.  Lo unleashes song writing on everyone. That's how song birds are involved. 
 How do the Delvers get destroyed at the end? Their tactics are shown to be vulnerable to corruption, each person must guard their own reactions.
 
-Things I love about the original version: 
-Humans are very responsible with their emotions, and have huge toolboxes for letting go of bad things and managing their emotional responses. 
-It's a society that values close relationships, that doens't define gender, that has a much lower human population than our current one. 
-
 Could the bad thing threaten the tree?  Be the tree? Be inside the tree? 
 
 The tree had a spore in it that came loose when Fi psychically jostled it.  It infected mostly Delvers, who were vulnerable to the signals.  Those Delvers started to get stuck, resentful, isolated, and started turning people to their side. 
@@ -230,13 +185,9 @@ In the mean time Lo has assembled her group to sing to the tree.  The singing wi
 
 But they don't solve it in time to save the Delvers.  And the Bad Guys have proven that this kind of secretive culture & structure is too dangerous.  So Lo knows her next phase in life is teaching the Delver skills to everyoe.  
 
-PRELUDE: The Pale Man is infected with the badness. [Still need to understand what the badness is...]
+PRELUDE: The Pale Man is infected with the badness. 
 
 EXCITING: Willow can regenerate basically if you just stick a branch of it in the earth. Nearly immortal. 
-
-The tree has a long-hidden fungus inside of it which 
-
-They have to sing a song to correct an infection that is spreading from a mold/fungus. The song works by [a long rabbithole on tvtropes later].  
 
 When they sing this song, they broadcast it widely using the transmitter they stole from the warehouse, where the BG were using it to amplify the spread of the virus.
 
@@ -253,7 +204,7 @@ What is the problem? Theme?
  responsibility
 Sharing power. 
 
-Mq can be like the old man next to me, doesn't seem to know the words please or thank you and his bubble of influence it's enormous.
+
 
 8-12 major sequences: how is mine divided?
 

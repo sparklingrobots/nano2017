@@ -281,6 +281,10 @@ I'm not really in the place of knowing my chapters yet.  Not that I will after 
 ## 2019.01.15
 Yesterday's work on the book was just cleaning up some writing I did in 4thewords > Github transition. 
 
+This morning I spent about 30 minutes hammering out a plot spreadsheet. This still may not be the right tool but it's definitely highlighting the parts I'm worried about and that aren't quite working.  I"m going through the Plot.md document now and seeing what I can cut out of it, what's wrong, what's an open question, etc.  I'm at about 4300 words and want to get that slimmed way down. 
+
+I still have no place to track...facts. Like: The Delvers have a special decoction of the fungus (if they do). That's not a plot point. Maybe the fungus needs a character sheet?
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
