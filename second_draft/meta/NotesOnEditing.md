@@ -294,6 +294,54 @@ If I do put down the novel, I have a few things I want to think about: What do I
 (Note: I still feel kinda bad about the way my last retreat went down with the housing snafu etc. I probably need to let go of that.)
 
 Okay, how will I make the decision to let go of this for now? I feel like I've taken in too much how-to-write material without writing anything to a finished state.  Let's evaluate and maybe bring it up with Sasha. 
+
+
+## 2019.01.21
+(Where is my 2016 NaNo? The one with the chase scenes? I should still have the machine I used to write it...unless it was UMG? Still, I think I got everything off of there. Hmmmmmm....)
+
+What is the current state of things? 
+
+I'm feeling really excited to work on other projects--especially poems and zines. I am eager to start sharing my writing again and the novel is so so so so far from sharing level. 
+
+The book itself is about 44,915 words long--way shorter than I thought, because I forgot that I had been counting all the extra stuff/meta stuff in there. So, I am pretty dang good at writing stuff that *doesn't* go in the novel.  That said, there are a lot of missing scenes. Goal here is to get to 100,00 words or so (eventually--not right now) 
+
+What is the remaining work to do? 
+
+a) There are some serious structural issues (e.g. ye olde Fungus vs Song debate) 
+
+b) Any given scene probably needs to be fleshed out. 
+
+c) Lots of re-writing and making things better on the sentence and paragraph level. 
+
+Talking to Paul, I realized that in some ways I just need to get more scenes on paper. Fill in the holes of totally missing story and then I can come back to it later and start to really solve things. He pointed out that it would be good not to lose what I know about the book right now, even though I'm sick of it and feel way way too close to the story as it is.  Just stop trying to solve the structural issues until the next draft.
+
+I also feel a backlog of writing about writing in my head, stuff I'm struggling to apply to this story and so it just feels like it's always growing in my head. And I have the Beating the Story book to finish, plus K recommended that Story Genius book. I'm learning too much and not practicing enough.  
+
+I'm thinking this is the plan: 
+
+This week, work on the novel and get these scenes written: 
+
+Fi in the Well seeing the pink energy in some of the Delvers
+Pale man meeting the murderer
+Hx helping the Pale Man with the radio 
+Lo learns about early Delver (pre-Delver, really) history and the fungus being implanted in the tree
+Lo seeing the evidence of a schism she believes is related to the fungus situation. 
+Then finalize the manuscript--make sure each scene is in an order, and maybe consolidate it into one document so I can just print it out for next time. 
+
+While planning my February retreat, if I feel like I'm fresh enough to work on the novel, I'll try to finish the Beating the Story book so I can use it to analyze the manuscript.  If I feel interested sooner than that I can pick it up. Same with Story Genius.  
+
+My goal with this session was to have something that was like a novel, even if it was terrible. I am pretty much there.  
+
+My goal for the next draft will be determined when I'm reading it, but for now I suspect that it will be to fix any serious plot/structural concerns--or to put the novel away for another lifetime so I can start fresh. 
+
+I may* try writing short stories in the mean time. I don't know.  I would like to write a book worth shopping around, eventually. That is still a goal. It doesn't feel natural to me at all, but the wanting does. I have always wanted to write a novel, because I love novels so much. Short stories I don't give a fuck about but if they make it so I can write novels, let's do this. 
+
+I'd like to have this done by January 31. And then I will reconsider the novel no later than March, though it could be sooner. 
+
+(Even now when I have some extra time to work on the novel, my mind is like NOOOO DON'T I HATES IT PRECIOUS DON'T OPEN STOOOOOP which I think is a clear sign that it's been too long and too little reward. Need to quit while I don't completely hate this book so I can get happy again about it.)
+
+Okay once I got writing that was actually really fun and exciting. GEE WHAT A SURPRISE WRITING IS THE FUN PART AND AGONIZING IS NOT. 
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
