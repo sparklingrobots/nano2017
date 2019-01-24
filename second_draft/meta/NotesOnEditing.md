@@ -342,6 +342,9 @@ I'd like to have this done by January 31. And then I will reconsider the novel n
 
 Okay once I got writing that was actually really fun and exciting. GEE WHAT A SURPRISE WRITING IS THE FUN PART AND AGONIZING IS NOT. 
 
+## 2019.01.24
+Writing another scene that wasn't quite what I was hoping for but it's starting to feel okay, starting to feel like it's coming together! YES! I feel okay about continuing to write if this is how it feels. Once it gets all sticky and fucked up again, then time to move on, I think
+
 # LINKS I WANT TO REVIEW
 http://www.writersdigest.com/writing-articles/by-writing-goal/improve-my-writing/8-ways-to-write-better-characters
 http://www.writersdigest.com/online-editor/how-to-make-ordinary-characters-compelling
